@@ -48,7 +48,7 @@
   </a>
   <!-- Discord -->
   <a href="https://discord.com/" target="_blank" rel="noreferrer">
-    <img src="https://www.vectorlogo.zone/logos/discordapp/discordapp-icon.svg" alt="discord" width="40" height="40"/>
+    <img src="https://www.svgrepo.com/show/353655/discord-icon.svg" alt="discord" width="40" height="40"/>
   </a>
   <!-- VS Code -->
   <a href="https://code.visualstudio.com/" target="_blank" rel="noreferrer">
@@ -56,7 +56,7 @@
   </a>
   <!-- Visual Studio -->
   <a href="https://visualstudio.microsoft.com/" target="_blank" rel="noreferrer">
-    <img src="https://visualstudio.microsoft.com/wp-content/uploads/2021/10/Visual-Studio-Icon-2022.png" alt="visualstudio" width="40" height="40"/>
+    <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/5/59/Visual_Studio_Icon_2019.svg/2060px-Visual_Studio_Icon_2019.svg.png" alt="visualstudio" width="40" height="40"/>
   </a>
   <!-- Arch Linux -->
   <a href="https://archlinux.org/" target="_blank" rel="noreferrer">
@@ -72,11 +72,11 @@
   </a>
   <!-- Matrix (Element) -->
   <a href="https://element.io/" target="_blank" rel="noreferrer">
-    <img src="https://element.io/images/logo-mark.svg" alt="matrix" width="40" height="40"/>
+    <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/c/cb/Element_%28software%29_logo.svg/1024px-Element_%28software%29_logo.svg.png" alt="matrix" width="40" height="40"/>
   </a>
   <!-- Warp Terminal -->
   <a href="https://www.warp.dev/" target="_blank" rel="noreferrer">
-    <img src="https://www.vectorlogo.zone/logos/warpapp/warpapp-icon.svg" alt="warp" width="40" height="40"/>
+    <img src="https://user-images.githubusercontent.com/85056161/221151383-dee5374b-03d9-4548-a0fd-35dfc7ea0f5b.png" alt="warp" width="40" height="40"/>
   </a>
   <!-- Kitty Terminal -->
   <a href="https://sw.kovidgoyal.net/kitty/" target="_blank" rel="noreferrer">
