@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **C++, Swift, and (possibly) Godot**
 
-- 💻 I’m looking to collaborate on [Atherium (Discord Guilt Bot)](https://github.com/Techpro709/discordGuildBot)
+- 💻 I’m looking to collaborate on [Atherium (Discord Guild Bot)](https://github.com/Techpro709/discordGuildBot)
 
 - 👨‍💻 All of my projects are available at [https://github.com/tcdevvv](https://github.com/tcdevvv)
 - 💬 Ask me about **C++, Formula 1, Music, and Brooklyn 99**
