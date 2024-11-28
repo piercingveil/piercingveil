@@ -5,11 +5,11 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=tcdevvv" alt="tcdevvv" /></a> </p>
 
-- 🔭 I’m currently working on [Hack Club](https://hackclub.com/)
+- 🔭 I’m currently working on [Hack Club](https://hackclub.com/) and [SelfRythm Reworked (Discord Music Selfbot)](https://github.com/Techpro709/SelfRythm)
 
 - 🌱 I’m currently learning **C++, Swift, and (possibly) Godot**
 
-- 💻 I’m looking to collaborate on [SelfRythm Reworked (Discord music selfbot))](https://github.com/Techpro709/SelfRythm)
+- 💻 I’m looking to collaborate on [Atherium (Discord Guilt Bot)](https://github.com/Techpro709/discordGuildBot)
 
 - 👨‍💻 All of my projects are available at [https://github.com/tcdevvv](https://github.com/tcdevvv)
 - 💬 Ask me about **C++, Formula 1, Music, and Brooklyn 99**
