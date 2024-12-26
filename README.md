@@ -14,7 +14,7 @@
 - 👨‍💻 All of my projects are available at [https://github.com/tcdevvv](https://github.com/tcdevvv)
 - 💬 Ask me about **C++, Formula 1, Music, and Brooklyn 99**
 
-- 📫 How to reach me **tcdevv (Discord - 464110281623207956)**
+- 📫 How to reach me **strlogic (Discord - 464110281623207956)**
 
 <h3 align="left">Languages and Tools:</h3>
 <p align="left">
