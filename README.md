@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on [Hack Club](https://hackclub.com/) and [SelfRythm Reworked (Discord Music Selfbot)](https://github.com/Techpro709/SelfRythm)
 
-- 🌱 I’m currently learning **C++, Swift, and (possibly) Godot**
+- 🌱 I’m currently learning **C++, Swift, JS, HTML**
 
 - 💻 I’m looking to collaborate on [Atherium (Discord Guild Bot)](https://github.com/Techpro709/discordGuildBot)
 
