@@ -5,16 +5,16 @@
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=tcdevvv" alt="tcdevvv" /></a> </p>
 
-- 🔭 I’m currently working on [Hack Club](https://hackclub.com/) and [SelfRythm Reworked (Discord Music Selfbot)](https://github.com/Techpro709/SelfRythm)
+- 🔭 I’m currently working on [Hack Club](https://hackclub.com/), [SelfRythm Reworked (Discord Music Selfbot)](https://github.com/Techpro709/SelfRythm), and [Auto Bump Selfbot for Disboard](https://github.com/tcdevvv/AutoBumpSelfbot)
 
 - 🌱 I’m currently learning **C++, Swift, JS, HTML**
 
 - 💻 I’m looking to collaborate on [Atherium (Discord Guild Bot)](https://github.com/Techpro709/discordGuildBot)
 
-- 👨‍💻 All of my projects are available at [https://github.com/tcdevvv](https://github.com/tcdevvv)
+- 👨‍💻 Most of my projects are available at [https://github.com/tcdevvv](https://github.com/tcdevvv)
 - 💬 Ask me about **C++, Formula 1, Music, and Brooklyn 99**
 
-- 📫 How to reach me **strlogic (Discord - 464110281623207956)**
+- 📫 How to reach me **overcounted (Discord - 1166462295380086886)**
 
 <h3 align="left">Languages and Tools:</h3>
 <p align="left">
