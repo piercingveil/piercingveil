@@ -3,6 +3,10 @@
 
 <p align="center"> <img src="https://count.getloli.com/@piercingveil?name=piercingveil&theme=rule34&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt="piercingveil" /> </p>
 
+<a href="https://data-card-for-spotify.herokuapp.com/card?user_id=0mumugfqrqzvwo75wqwmga03k">
+  <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=0mumugfqrqzvwo75wqwmga03k" alt="Data Card for Spotify">
+</a>
+
 - 🔭 I’m currently working on [Hack Club](https://hackclub.com/), [SelfRythm Reworked (Discord Music Selfbot)](https://github.com/Techpro709/SelfRythm), and [Auto Bump Selfbot for Disboard](https://github.com/piercingveil/AutoBumpSelfbot)
 
 - 🌱 I’m currently learning **C++, Swift, JS, HTML**
