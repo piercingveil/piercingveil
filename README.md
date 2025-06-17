@@ -1,5 +1,5 @@
 <div align="center">
-hi! most of my repositories are private, if you want to see any of my specific code, shoot me a dm. 
+hi! most of my repositories are private, if you want to see anything specific, shoot me a dm.
 
 contact @ https://haunt.gg/russian or eg574@proton.me
 
