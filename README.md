@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm piercingveil</h1>
 <h3 align="center">A passionate developer and motorsport enthusiast.</h3>
 
-<p align="left"> <img src="https://count.getloli.com/@piercingveil?name=piercingveil&theme=random&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt="piercingveil" /> </p>
+<p align="center"> <img src="https://count.getloli.com/@piercingveil?name=piercingveil&theme=random&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt="piercingveil" /> </p>
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=piercingveil" alt="piercingveil" /></a> </p>
 
