@@ -1,7 +1,7 @@
 <div align="center">
 hi! most of my repositories are private, if you want to see anything specific, shoot me a dm.
 
-contact @ https://haunt.gg/russian or eg574@proton.me
+contact @ https://haunt.gg/tcdevvv or eg574@proton.me
 
 ## 
 
