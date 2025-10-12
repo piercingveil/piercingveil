@@ -1,31 +1,34 @@
-<div align="center">
-  <!-- Animated SVG Banner -->
-  <img src="./header.svg" alt="hi there, i'm elvin 🎊"/>
-</div>
+<!-- <img src="https://raw.githubusercontent.com/piercingveil/piercingveil/main/craft.svg" style="float: left;" width="128" alt="hi" /> -->
+<h1 align="left">
+  <img src="./header.svg" alt="hi there, i'm elvin 🎊" width="650" />
+  <img src="https://skillicons.dev/icons?i=cpp,python,cs,html,css,js,nodejs,react,linux,vscode,git,github,cloudflare,mysql" />
+  <img align="right" src="https://lanyard.cnrad.dev/api/1175223067757156402?animated=true" alt="Discord Presence" />
+</h1>
 
-##
+hey there, i'm **elvin** — a developer who enjoys working on creative and experimental projects (mostly private).  
+currently exploring **C++**, **Python**, and **game development** in **VSCode on macOS**.
 
-<div align="center">
-most of my repositories are private, if you want to see anything specific, shoot me a dm.<br>
-contact @ <a href="https://haunt.gg/xo">haunt.gg/xo</a> or <a href="mailto:eg574@proton.me">eg574@proton.me</a>
-</div>
+---
 
-##
+💬 **contact me:**  
+<a href="https://haunt.gg/xo">haunt.gg/xo</a> · <a href="mailto:eg574@proton.me">eg574@proton.me</a>
+
+---
 
 <p align="center">
-  <img src="https://count.getloli.com/@piercingveil?name=piercingveil&theme=rule34&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt="piercingveil" />
+  <img src="https://count.getloli.com/@piercingveil?name=piercingveil&theme=rule34&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt="piercingveil counter" />
 </p>
 
-##
+---
 
 <p align="center">
   <a href="https://data-card-for-spotify.herokuapp.com/card?user_id=0mumugfqrqzvwo75wqwmga03k">
-    <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=0mumugfqrqzvwo75wqwmga03k" alt="Data Card for Spotify" />
+    <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=0mumugfqrqzvwo75wqwmga03k" alt="Spotify Card" />
   </a>
 </p>
 
 <p align="center">
   <a href="https://github.com/anuraghazra/github-readme-stats">
-    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=piercingveil" alt="Top Languages" />
+    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=piercingveil&layout=compact&theme=github_dark" alt="Top Languages" />
   </a>
 </p>
