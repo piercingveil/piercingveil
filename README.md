@@ -25,9 +25,3 @@ most of my repositories are **private**, if you want anything specific, shoot me
     <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=0mumugfqrqzvwo75wqwmga03k" alt="Spotify Card" />
   </a>
 </p>
-
-<p align="center">
-  <a href="https://github.com/anuraghazra/github-readme-stats">
-    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=piercingveil&layout=compact&theme=github_dark" alt="Top Languages" />
-  </a>
-</p>
