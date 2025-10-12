@@ -2,11 +2,10 @@
 <h1 align="left">
   <img src="./header.svg" alt="hi there, i'm elvin 🎊" width="650" />
   <img src="https://skillicons.dev/icons?i=cpp,python,cs,html,css,js,nodejs,react,linux,vscode,git,github,cloudflare,mysql" />
-  <img align="right" src="https://lanyard.cnrad.dev/api/1175223067757156402?animated=true" alt="Discord Presence" />
+  <img align="right" src="https://lanyard.cnrad.dev/api/1155267984923828255?animated=true" alt="Discord Presence" />
 </h1>
 
-hey there, i'm **elvin** — a developer who enjoys working on creative and experimental projects (mostly private).  
-currently exploring **C++**, **Python**, and **game development** in **VSCode on macOS**.
+most of my repositories are **private**, if you want anything specific, shoot me a dm.  
 
 ---
 
