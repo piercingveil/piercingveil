@@ -1,6 +1,6 @@
 <div align="center">
   <!-- Animated SVG Banner -->
-  <img src="./banner.svg" alt="hi there, i'm elvin 🎊" width="650" height="85" />
+  <img src="./header.svg" alt="hi there, i'm elvin 🎊" width="650" height="85" />
 </div>
 
 ##
