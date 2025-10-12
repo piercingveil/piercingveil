@@ -1,6 +1,12 @@
 <svg xmlns="http://www.w3.org/2000/svg" fill="none" viewBox="0 0 650 85" width="650" height="85">
   <foreignObject width="100%" height="100%">
-    <div xmlns="http://www.w3.org/1999/xhtml">
+    <div xmlns="http://www.w3.org/1999/xhtml" style="
+      display: flex;
+      justify-content: center;
+      align-items: center;
+      height: 85px;
+      text-align: center;
+    ">
       <style>
         .wave {
           animation-name: wave-animation;
@@ -25,14 +31,12 @@
           100% { background-position: 0% 50%; }
         }
         h1 {
-          font-family: 'Segoe UI', 'Roboto', 'Oxygen', 'Ubuntu', 'Cantarell', 
+          font-family: 'Segoe UI', 'Roboto', 'Oxygen', 'Ubuntu', 'Cantarell',
             'Fira Sans', 'Droid Sans', 'Helvetica Neue', sans-serif;
           margin: 0;
           font-size: 3.75em;
           font-weight: 900;
           letter-spacing: -.05em;
-          text-align: center;
-          float: center;
         }
         .normal {
           color: #0d1117;
