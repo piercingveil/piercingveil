@@ -1,6 +1,6 @@
 <!-- <img src="https://raw.githubusercontent.com/piercingveil/piercingveil/main/craft.svg" style="float: left;" width="128" alt="hi" /> -->
 <h1 align="left">
-  <img src="./header.svg" alt="hi there, i'm syra 🎊" width="650" />
+  <img src="./header1.svg" alt="hi there, i'm syra 🎊" width="650" />
   <img src="https://skillicons.dev/icons?i=cpp,python,cs,html,css,js,nodejs,react,linux,arch,vscode,git,postgresql,cloudflare,mongodb" />
   <img align="right" src="https://lanyard.cnrad.dev/api/1155267984923828255?animated=true" alt="Discord Presence" />
 </h1>
