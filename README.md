@@ -11,7 +11,7 @@ most of my repositories are **private**, if you want anything specific, shoot me
 ---
 
 💬 **contact me:**  
-<a href="https://haunt.gg/xo">haunt.gg/xo</a> · <a href="mailto:eg574@proton.me">eg574@proton.me</a>
+<a href="https://wound.lol/alex">wound.lol/alex</a> · <a href="mailto:eg574@proton.me">eg574@proton.me</a>
 
 ---
 
