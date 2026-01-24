@@ -2,7 +2,7 @@
 <h1 align="left">
   <img src="./header.svg" alt="hi there, i'm syra 🎊" width="650" />
   <img src="https://skillicons.dev/icons?i=cpp,python,cs,html,css,js,nodejs,react,linux,arch,vscode,git,postgresql,cloudflare,mongodb" />
-  <img align="right" src="https://lanyard.cnrad.dev/api/1155267984923828255?animated=true" alt="Discord Presence" />
+  <img align="right" src="https://lanyard.cnrad.dev/api/1161642868880969778?animated=true" alt="Discord Presence" />
 </h1>
 
 most of my repositories are **private**, if you want anything specific, shoot me a dm.  
