@@ -1,5 +1,5 @@
 <!-- <img src="https://raw.githubusercontent.com/piercingveil/piercingveil/main/craft.svg" style="float: left;" width="128" alt="hi" /> -->
-<h1 align="left">
+<h1 align="center">
   <img src="./header.svg" alt="hi there, i'm alex 🎊" width="650" />
 </h1>
 
