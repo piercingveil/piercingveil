@@ -12,17 +12,3 @@ most of my repositories are **private**, if you want anything specific, shoot me
 
 💬 **contact me:**  
 <a href="https://wound.lol/alex">wound.lol/alex</a> · <a href="mailto:eg574@proton.me">eg574@proton.me</a>
-
----
-
-<p align="center">
-  <img src="https://count.getloli.com/@piercingveil?name=piercingveil&theme=rule34&padding=7&offset=0&align=top&scale=1&pixelated=1&darkmode=auto" alt="piercingveil counter" />
-</p>
-
----
-
-<p align="center">
-  <a href="https://data-card-for-spotify.herokuapp.com/card?user_id=0mumugfqrqzvwo75wqwmga03k">
-    <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=0mumugfqrqzvwo75wqwmga03k" alt="Spotify Card" />
-  </a>
-</p>
