@@ -33,7 +33,17 @@ $\color{#7b8f94}{\text{     ᴷᵉⁱ ‎ ‎ ‎ ‎ ‎ ‎    ᴸᵉᵒ ‎ �
   ‎ ‎ ‎
 <img width="105" height="82" alt="image" src="https://github.com/user-attachments/assets/4aaad354-e3c8-43e1-a8aa-b196316027c0" /><img width="110" height="80"  src="https://github.com/user-attachments/assets/f57214ff-71c8-4eff-91d8-37c2531103a1" width="70"/><img width="97" height="80" alt="image" src="https://github.com/user-attachments/assets/e01fe500-bcc8-447b-a66d-22cb4761f045" />
 
-     SCREENSHOT OF SHAME.
+ ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+
+
+  ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+
+   ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+    ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+     ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+      ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+
+     SCREENSHOT OF SHAME. boo everyone throw tomatoes
 
 <img width="191" height="104" alt="image" src="https://github.com/user-attachments/assets/5c911fc7-ebbc-4d99-869e-c71c3640ab08" />
 <img width="147" height="106" alt="image" src="https://github.com/user-attachments/assets/c3531715-4919-40b2-a911-e209f4ea0d8d" />
