@@ -24,16 +24,15 @@ $\color{#d1c15c}{\text{     ᴷᵉⁱ ‎ ‎ ‎ ‎ ‎ ‎    ᴸᵉᵒ ‎ �
 ‎
 
 <div align="center">‎
-<img width="105" height="82" alt="image" src="https://github.com/user-attachments/assets/4aaad354-e3c8-43e1-a8aa-b196316027c0" /><img width="110" height="80"  src="https://github.com/user-attachments/assets/f57214ff-71c8-4eff-91d8-37c2531103a1" width="70"/><img width="97" height="80" alt="image" src="https://github.com/user-attachments/assets/e01fe500-bcc8-447b-a66d-22cb4761f045" />
 
  ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
-
-
-  ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+<img width="115" height="146" alt="image" src="https://github.com/user-attachments/assets/4030dc70-3673-4ba0-bb3b-3b53763d8c82" />
 
    ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
     ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
-     ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
+<img width="105" height="82" alt="image" src="https://github.com/user-attachments/assets/4aaad354-e3c8-43e1-a8aa-b196316027c0" /><img width="110" height="80"  src="https://github.com/user-attachments/assets/f57214ff-71c8-4eff-91d8-37c2531103a1" width="70"/><img width="97" height="80" alt="image" src="https://github.com/user-attachments/assets/e01fe500-bcc8-447b-a66d-22cb4761f045" />
+‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
       ‎ ‎ ‎    ‎ ‎ ‎ ‎ ‎ ‎    
 
 $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
