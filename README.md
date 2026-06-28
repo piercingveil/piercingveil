@@ -2,7 +2,6 @@
     
  $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
-   ‎ ‎ ‎ ‎ ‎ ‎   ‎  
    <img width="314" height="272" alt="image" src="https://github.com/user-attachments/assets/7c446847-cb0c-44de-94fd-88b15c3a42f9" />
 
 
