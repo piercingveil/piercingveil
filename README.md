@@ -4,7 +4,7 @@
  
    <img width="314" height="272" alt="image" src="https://github.com/user-attachments/assets/7c446847-cb0c-44de-94fd-88b15c3a42f9" />
    
-![](https://komarev.com/ghpvc/?username=h3venly4&label=˚goobers˚&color=000000&style=plastic)
+![](https://komarev.com/ghpvc/?username=h3venly4&label=˚goobers˚&color=b58551&style=plastic)
 
 $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
