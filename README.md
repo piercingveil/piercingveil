@@ -8,7 +8,7 @@
 
 $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/Kinichs)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ ⋆⋆⋆‎   [ᴀᴛᴀ](https://xxzu.atabook.org)ʙᴏᴏᴋ♡  ✦  [ꜱᴛʀᴀᴡ](https://xzuz.straw.page)ᴘᴀɢᴇ ♡ ✦ [🇷​​🇪​​🇳​​](https://rentry.co/xxxzu)🇹​​🇷​​🇾♡​ ‎ ‎  $\color{#d1875c}{\text{   ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ. }}$
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/SushiTofu)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ ⋆⋆⋆‎   [ᴀᴛᴀ](https://xxzu.atabook.org)ʙᴏᴏᴋ♡  ✦  [ꜱᴛʀᴀᴡ](https://xzuz.straw.page)ᴘᴀɢᴇ ♡ ✦ [🇷​​🇪​​🇳​​](https://rentry.co/xxxzu)🇹​​🇷​​🇾♡​ ‎ ‎  $\color{#d1875c}{\text{   ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ. }}$
 
 <div align="center">
   ‎ ‎ 
