@@ -2,7 +2,8 @@
 <img width="709" height="131" alt="image" src="https://github.com/user-attachments/assets/33229783-1789-43f6-91e3-77dacffa8f82" />
 
  $\color{#ba946c}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
-   <img width="314" height="272" alt="image" src="https://github.com/user-attachments/assets/7c446847-cb0c-44de-94fd-88b15c3a42f9" />
+ <img width="264" height="109" alt="image" src="https://github.com/user-attachments/assets/86ed90e3-b2f7-4904-ade0-083dce69b3ce" />
+
    
 ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚goobers˚&color=b58551&style=plastic)
 
