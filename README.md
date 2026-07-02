@@ -1,7 +1,7 @@
  <div align="center">  
 <img width="609" height="121" alt="image" src="https://github.com/user-attachments/assets/33229783-1789-43f6-91e3-77dacffa8f82" />
 
- $\color{#ba946c}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+ $\color{#ba946c}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　ᵃᵗ ᵗʰᵉ ᵉⁿᵈ ᵒᶠ ᵗʰᵉ ᵈᵃʸ, ⁱᵗ'ˢ ʷʰᵒ ᵘ ᵇʳᵒᵘᵍʰᵗ ᵗᵒ ʰᵉᵃʳᵗ ⁱˢˡᵃⁿᵈ ᵒⁿ ᵍᵉⁿˢʰⁱⁿ!　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
  <img width="264" height="109" alt="image" src="https://github.com/user-attachments/assets/86ed90e3-b2f7-4904-ade0-083dce69b3ce" />
 
