@@ -35,16 +35,10 @@ $\color{#7a913a}{\text{​🇲​​🇪​ ​🇳​ ​🇹​​🇺​​�
 
 ‎
 
-
-
-
-     Peakest here...
-     
 <img width="105" height="82" alt="image" src="https://github.com/user-attachments/assets/4aaad354-e3c8-43e1-a8aa-b196316027c0" /><img width="110" height="80"  src="https://github.com/user-attachments/assets/f57214ff-71c8-4eff-91d8-37c2531103a1" width="70"/><img width="70" height="80" alt="image" src="https://github.com/user-attachments/assets/e2ebf1d0-813f-4a42-8ae2-9dfa2728d2fb" /><img width="83" height="80" alt="image" src="https://github.com/user-attachments/assets/ae85e37d-885b-4545-bee7-088997c4ed56" />
 
 
- $\color{#303030}{\text{ "if i didnt want to be found; you would've never found me at all" 
-  you draw the knife,  i kiss the blade "}}$ 
+ $\color{#303030}{\text{ "  you draw the knife,  i kiss the blade "}}$ 
 
 
 <img width="82" height="64" alt="cecesrhaccc1-on-tiktok-cecesrhaccc1" src="https://github.com/user-attachments/assets/b0fee6e8-0054-4b4d-8af5-4aaca0438792" /> there are so many things i could say right now and i am gonna say nothing. 
