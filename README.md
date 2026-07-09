@@ -11,7 +11,7 @@
 
 $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/SushiTofu)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ <img width="45" height="52" alt="image" src="https://github.com/user-attachments/assets/d6f1fcff-bc69-4f57-bd00-24e5a02fe448" />‎   [ᴀᴛᴀ](https://xxzu.atabook.org)ʙᴏᴏᴋ♡  ✦  [ꜱᴛʀᴀᴡ](https://xzuz.straw.page)ᴘᴀɢᴇ ♡ ✦ [🇷​​🇪​​🇳​​](https://rentry.co/xxxzu)🇹​​🇷​​🇾♡​ ‎ ‎  $\color{#d1875c}{\text{   ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ. }}$
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/SushiTofu)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ <img width="35" height="42" alt="image" src="https://github.com/user-attachments/assets/d6f1fcff-bc69-4f57-bd00-24e5a02fe448" />‎    [ᴀᴛᴀ](https://xxzu.atabook.org)ʙᴏᴏᴋ♡  ✦  [ꜱᴛʀᴀᴡ](https://xzuz.straw.page)ᴘᴀɢᴇ ♡ ✦ [🇷​​🇪​​🇳​​](https://rentry.co/xxxzu)🇹​​🇷​​🇾♡​ ‎ ‎  $\color{#d1875c}{\text{   ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ. }}$
 
 <div align="center">
   ‎ ‎ 
