@@ -1,15 +1,16 @@
  <div align="center">  
-<img width="464" height="89" alt="image" src="https://github.com/user-attachments/assets/381ea418-005d-4dd2-9f4d-ed5356ebdd19" />
+<img width="604" height="129" alt="image" src="https://github.com/user-attachments/assets/381ea418-005d-4dd2-9f4d-ed5356ebdd19" />
 
 
- $\color{#ba946c}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　　　　 . ݁˖ . ݁ ˚　.　　　 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+ $\color{#ad605a}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　　　　 . ݁˖ . ݁ ˚　.　　　 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
 
-<img width="224" height="141" alt="image" src="https://github.com/user-attachments/assets/7ca818b2-4a9b-4ba7-849b-fa437880067c" />
+<img width="425" height="226" alt="image" src="https://github.com/user-attachments/assets/6593fb6d-9b74-4000-b197-b60e3059f1b1" />
+
 
 
    
-![](https://komarev.com/ghpvc/?username=h3venly4&label=˚silly!˚&color=b58551&style=plastic)
+![](https://komarev.com/ghpvc/?username=h3venly4&label=˚silly!˚&color=874641&style=plastic)
 
 $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
