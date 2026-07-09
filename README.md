@@ -1,5 +1,6 @@
  <div align="center">  
-<img width="609" height="121" alt="image" src="https://github.com/user-attachments/assets/33229783-1789-43f6-91e3-77dacffa8f82" />
+<img width="464" height="89" alt="image" src="https://github.com/user-attachments/assets/381ea418-005d-4dd2-9f4d-ed5356ebdd19" />
+
 
  $\color{#ba946c}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　　　　 . ݁˖ . ݁ ˚　.　　　 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
@@ -8,7 +9,7 @@
 
 
    
-![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lanterns˚&color=b58551&style=plastic)
+![](https://komarev.com/ghpvc/?username=h3venly4&label=˚silly!˚&color=b58551&style=plastic)
 
 $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
