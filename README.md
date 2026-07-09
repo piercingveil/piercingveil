@@ -3,11 +3,12 @@
 
  $\color{#ba946c}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　　　　 . ݁˖ . ݁ ˚　.　　　 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
-<img width="221" height="109" alt="image" src="https://github.com/user-attachments/assets/15873a36-7dc8-4adb-8482-3a6c10ef56e4" />
+
+<img width="224" height="141" alt="image" src="https://github.com/user-attachments/assets/7ca818b2-4a9b-4ba7-849b-fa437880067c" />
 
 
    
-![](https://komarev.com/ghpvc/?username=h3venly4&label=˚goobers˚&color=b58551&style=plastic)
+![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lanterns˚&color=b58551&style=plastic)
 
 $\color{#c4c066}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
