@@ -5,7 +5,8 @@
  $\color{#ad605a}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　　　　 . ݁˖ . ݁ ˚　.　　　 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
 
-<img width="425" height="226" alt="image" src="https://github.com/user-attachments/assets/6593fb6d-9b74-4000-b197-b60e3059f1b1" />
+<img width="331" height="239" alt="image" src="https://github.com/user-attachments/assets/94a17368-6493-43c8-aa5f-02fd762895cd" />
+
 
 
 
