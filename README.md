@@ -1,5 +1,5 @@
  <div align="center">  
-<img width="513" height="135" alt="image" src="https://github.com/user-attachments/assets/79ddc9c3-28b6-4fed-877f-5d8c4479aa4b" />
+<img width="503" height="135" alt="image" src="https://github.com/user-attachments/assets/79ddc9c3-28b6-4fed-877f-5d8c4479aa4b" />
 
 
 
@@ -30,7 +30,7 @@ $\color{#34916f}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　�
  
 
 
-<img width="514" height="114" alt="image" src="https://github.com/user-attachments/assets/d74058b9-011e-48d1-9636-a3f6f4b6d517" />
+<img width="520" height="114" alt="image" src="https://github.com/user-attachments/assets/d74058b9-011e-48d1-9636-a3f6f4b6d517" />
 
 
 
