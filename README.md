@@ -13,12 +13,12 @@
 
 
    
-![](https://komarev.com/ghpvc/?username=h3venly4&label=˚silly!˚&color=2f9e8d&style=plastic)
+![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=2f9e8d&style=plastic)
 
 $\color{#34916f}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​​​🇮​​🇫​​🇺♡](https://github.com/SushiTofu)  ‎ ‎♡   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎  ‎ ‎ ‎ ‎      [<img width="56" height="46" alt="image" src="https://github.com/user-attachments/assets/33a708fb-3cae-4eeb-acbb-08ab9956a278" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="66" height="46" alt="image" src="https://github.com/user-attachments/assets/83d05c29-cee2-44fd-ac37-6ad9a3c6cfce" />](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="52" height="46" alt="image" src="https://github.com/user-attachments/assets/87706f64-e82d-4940-afdb-59a16a5f4c50" />
-](https://rentry.co/xxxzu)​ ‎ ‎  $\color{#7a3838}{\text{   ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ. }}$
+](https://rentry.co/xxxzu)​ ‎ ‎  $\color{#16574d}{\text{   ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ. }}$
 
 <div align="center">
   ‎ ‎ 
