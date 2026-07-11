@@ -30,7 +30,8 @@ $\color{#824d4d}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　�
  
 
 
-<img width="519" height="103" alt="image" src="https://github.com/user-attachments/assets/7550dbd2-7939-4355-85f1-c94348f0feab" />
+<img width="514" height="114" alt="image" src="https://github.com/user-attachments/assets/d74058b9-011e-48d1-9636-a3f6f4b6d517" />
+
 
 
 
