@@ -3,11 +3,10 @@
 
 
 
- $\color{#3b8c7f}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　　　　 . ݁˖ . ݁ ˚　.　　　 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+ $\color{#3b8c7f}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　. . ݁˖ . ݁ ˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐᵒᵈᵉ, ᵖᶜ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
-
-<img width="380" height="339" alt="image" src="https://github.com/user-attachments/assets/8b800b97-d8a4-4c9a-8619-8997e13857be" />
-
+ 
+<img width="353" height="329" alt="image" src="https://github.com/user-attachments/assets/fdfb81d6-d77d-404d-89cb-a0e0ea908308" />
 
 
 
