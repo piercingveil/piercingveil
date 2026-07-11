@@ -15,7 +15,7 @@
 
 $\color{#824d4d}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/SushiTofu)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ <img width="35" height="42" alt="image" src="https://github.com/user-attachments/assets/d6f1fcff-bc69-4f57-bd00-24e5a02fe448" />‎    [ᴀᴛᴀ](https://xxzu.atabook.org)ʙᴏᴏᴋ♡  ✦  [ꜱᴛʀᴀᴡ](https://xzuz.straw.page)ᴘᴀɢᴇ ♡ ✦ [<img width="52" height="46" alt="image" src="https://github.com/user-attachments/assets/87706f64-e82d-4940-afdb-59a16a5f4c50" />
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/SushiTofu)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ <img width="35" height="42" alt="image" src="https://github.com/user-attachments/assets/d6f1fcff-bc69-4f57-bd00-24e5a02fe448" />‎    [<img width="56" height="46" alt="image" src="https://github.com/user-attachments/assets/33a708fb-3cae-4eeb-acbb-08ab9956a278" />](https://xxzu.atabook.org)  ✦  [<img width="66" height="46" alt="image" src="https://github.com/user-attachments/assets/83d05c29-cee2-44fd-ac37-6ad9a3c6cfce" />](https://xzuz.straw.page) ✦ [<img width="52" height="46" alt="image" src="https://github.com/user-attachments/assets/87706f64-e82d-4940-afdb-59a16a5f4c50" />
 ](https://rentry.co/xxxzu)​ ‎ ‎  $\color{#7a3838}{\text{   ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ. }}$
 
 <div align="center">
