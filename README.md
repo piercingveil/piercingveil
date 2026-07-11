@@ -1,12 +1,13 @@
  <div align="center">  
-<img width="608" height="155" alt="image" src="https://github.com/user-attachments/assets/52593bf7-040d-4d4a-9b7f-e84feafffce1" />
+<img width="513" height="135" alt="image" src="https://github.com/user-attachments/assets/79ddc9c3-28b6-4fed-877f-5d8c4479aa4b" />
 
 
 
  $\color{#ad605a}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　.　　　　　 . ݁˖ . ݁ ˚　.　　　 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
 
-<img width="331" height="239" alt="image" src="https://github.com/user-attachments/assets/94a17368-6493-43c8-aa5f-02fd762895cd" />
+<img width="380" height="339" alt="image" src="https://github.com/user-attachments/assets/8b800b97-d8a4-4c9a-8619-8997e13857be" />
+
 
 
 
