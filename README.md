@@ -1,3 +1,4 @@
+
  <div align="center">  
 <img width="503" height="135" alt="image" src="https://github.com/user-attachments/assets/79ddc9c3-28b6-4fed-877f-5d8c4479aa4b" />
 
@@ -16,6 +17,8 @@ $\color{#16574d}{\text{    ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ }}$ ![](ht
 $\color{#34916f}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​​​🇮​​🇫​​🇺♡](https://github.com/SushiTofu)  ‎ ‎♡   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎  ‎ ‎ ‎ ‎      [<img width="120" height="50" alt="image" src="https://github.com/user-attachments/assets/25cf2eb7-c33a-4d8f-a10f-48c8fc6e5d34" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="115" height="50" alt="image" src="https://github.com/user-attachments/assets/4894e20f-e126-4701-a054-e5b602d453de" />](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="102" height="47" alt="image" src="https://github.com/user-attachments/assets/59055f17-1978-4c0a-b48e-caafac7f6443" />](https://rentry.co/xxxzu)​ ‎ ‎
+
+<img width="208" height="78" alt="ab0dae4358634e380fcb6ea227ed3c7b" src="https://github.com/user-attachments/assets/6ccc5af0-1272-438c-97ca-3303e0f6e48e" />
 
 <div align="center">
   ‎ ‎ 
