@@ -4,7 +4,7 @@
 
 
 
- $\color{#3b8c7f}{\text{  .  .   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　. . ݁˖ . ݁ ˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐᵒᵈᵉ, ᵖᶜ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+ $\color{#3b8c7f}{\text{  .  .   ⋆˚｡˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐᵒᵈᵉ, ᵖᶜ　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　. . ݁˖ . ݁ ˚　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
  
 <img width="353" height="309" alt="image" src="https://github.com/user-attachments/assets/fdfb81d6-d77d-404d-89cb-a0e0ea908308" />
