@@ -4,7 +4,8 @@
 
 
 
- $\color{#3b8c7f}{\text{  .  .   ⋆˚｡˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐᵒᵈᵉ, ᵖᶜ　　　. ݁₊ ⊹ . ݁˖ . ݁ ˚　. . ݁˖ . ݁ ˚　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+$\color{#1b7063}{\text{  .  .   ⋆˚｡˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐᵒᵈᵉ, }}$  $\color{#3b8c7f}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#0e5247}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+ 
  
  
 <img width="403" height="339" alt="image" src="https://github.com/user-attachments/assets/fdfb81d6-d77d-404d-89cb-a0e0ea908308" />
