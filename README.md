@@ -12,7 +12,7 @@
 
 
    
-$\color{#16574d}{\text{    ʰᵒˡᵈ ‎ ‎ ‎ ‎    ‎ ‎    ᵖⁱᵉᶜᵉˢ‎ ‎ ‎ ‎ ‎    ‎ ‎ ‎    ‎     ᵒᶠ‎ ‎ ‎     ᵐᵉ  　‎ ‎ ‎    　　　  }}$ ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=2f9e8d&style=plastic)  $\color{#16574d}{\text{ ‎ ‎ ‎    ‎ ‎ ‎    ᵗⁱˡˡ ‎ ‎ ‎    ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ‎ ‎ ‎    ‎ ‎ ‎     ᵗᵒᵒ ‎ ‎ ‎    ʰᵉᵃᵛʸ }}$
+$\color{#16574d}{\text{    ʰᵒˡᵈ ‎ ‎ ‎　　  }}$ $\color{#1f7d6e}{\text{    ᵖⁱᵉᶜᵉˢ‎ ‎ ‎  ‎ 　　  }}$ $\color{#289c8a}{\text{     ᵒᶠ‎ ‎ ‎     ᵐᵉ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=2f9e8d&style=plastic)  $\color{#16574d}{\text{ ‎ ‎ ‎    ‎ ‎ ‎    ᵗⁱˡˡ ‎ ‎ ‎    ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ‎ ‎ ‎    ‎ ‎ ‎     ᵗᵒᵒ ‎ ‎ ‎    ʰᵉᵃᵛʸ }}$
 
 $\color{#34916f}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
