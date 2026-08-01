@@ -1,4 +1,5 @@
 
+
  <div align="center">  
 <img width="690" height="185" alt="image" src="https://github.com/user-attachments/assets/79ddc9c3-28b6-4fed-877f-5d8c4479aa4b" />
 
@@ -20,7 +21,7 @@ $\color{#34916f}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　�
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="120" height="50" alt="image" src="https://github.com/user-attachments/assets/25cf2eb7-c33a-4d8f-a10f-48c8fc6e5d34" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="115" height="50" alt="image" src="https://github.com/user-attachments/assets/4894e20f-e126-4701-a054-e5b602d453de" />](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="102" height="47" alt="image" src="https://github.com/user-attachments/assets/59055f17-1978-4c0a-b48e-caafac7f6443" />](https://rentry.co/xxxzu)​ ‎ ‎
 
 <div align="center">
-  ‎ ‎ <img width="150" height="20" alt="blinkiesCafe-9Z" src="https://github.com/user-attachments/assets/c8fdaa37-ba13-4def-80d1-08e7060d10e3" />
+<img width="213" height="74" alt="ab0dae4358634e380fcb6ea227ed3c7b" src="https://github.com/user-attachments/assets/78328a2e-5f47-4d8e-937f-6e46bc134b9a" />
 
      
 
