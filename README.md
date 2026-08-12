@@ -17,7 +17,7 @@ $\color{#eda091}{\text{  .  .   ⋆˚｡˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐ�
 
 
    
-$\color{#e6a785}{\text{    ʰᵒˡᵈ ‎ ‎ ‎　　  }}$ $\color{#e69485}{\text{    ᵖⁱᵉᶜᵉˢ‎ ‎ ‎  ‎ 　　  }}$ $\color{#f58c8c}{\text{     ᵒᶠ‎ ‎ ‎     ᵐᵉ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=e6859c&style=plastic)  $\color{#f5b5c2}{\text{ ‎ ‎ ‎    ‎ ‎ ‎    ᵗⁱˡˡ ‎ ‎ ‎    ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ‎ ‎ ‎    ‎ ‎ ‎     ᵗᵒᵒ ‎ ‎ ‎    ʰᵉᵃᵛʸ }}$
+$\color{#e6a785}{\text{    ʰᵒˡᵈ ‎ ‎ ‎　　  }}$ $\color{#e69485}{\text{    ᵖⁱᵉᶜᵉˢ‎ ‎ ‎  ‎ 　　  }}$ $\color{#f58c8c}{\text{     ᵒᶠ‎ ‎ ‎     ᵐᵉ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=faa7bb&style=plastic)  $\color{#f5b5c2}{\text{ ‎ ‎ ‎    ‎ ‎ ‎    ᵗⁱˡˡ ‎ ‎ ‎    ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ‎ ‎ ‎    ‎ ‎ ‎     ᵗᵒᵒ ‎ ‎ ‎    ʰᵉᵃᵛʸ }}$
 
 $\color{#e68585}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
