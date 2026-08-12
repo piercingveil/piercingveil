@@ -1,37 +1,35 @@
 
 
  <div align="center">  
-<img width="690" height="185" alt="image" src="https://github.com/user-attachments/assets/79ddc9c3-28b6-4fed-877f-5d8c4479aa4b" />
+<img width="1073" height="304" alt="image" src="https://github.com/user-attachments/assets/006431fe-94e5-4cae-bc77-83c5aede9f4d" />
 
 
 
-$\color{#1b7063}{\text{  .  .   ⋆˚｡˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐᵒᵈᵉ, }}$  $\color{#3b8c7f}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#0e5247}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+
+$\color{#eda091}{\text{  .  .   ⋆˚｡˚　ᵛⁱᵉʷ ᵒⁿ ᵈᵃʳᵏ ᵐᵒᵈᵉ, }}$  $\color{#de8587}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#de859e}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
  
  
-<img width="403" height="339" alt="image" src="https://github.com/user-attachments/assets/fdfb81d6-d77d-404d-89cb-a0e0ea908308" />
+<img width="504" height="335" alt="image" src="https://github.com/user-attachments/assets/11cfd9c5-b548-4703-a82b-ed33bebf4f1e" />
+
 
 
 
    
-$\color{#16574d}{\text{    ʰᵒˡᵈ ‎ ‎ ‎　　  }}$ $\color{#1f7d6e}{\text{    ᵖⁱᵉᶜᵉˢ‎ ‎ ‎  ‎ 　　  }}$ $\color{#289c8a}{\text{     ᵒᶠ‎ ‎ ‎     ᵐᵉ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=2f9e8d&style=plastic)  $\color{#16574d}{\text{ ‎ ‎ ‎    ‎ ‎ ‎    ᵗⁱˡˡ ‎ ‎ ‎    ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ‎ ‎ ‎    ‎ ‎ ‎     ᵗᵒᵒ ‎ ‎ ‎    ʰᵉᵃᵛʸ }}$
+$\color{#e6a785}{\text{    ʰᵒˡᵈ ‎ ‎ ‎　　  }}$ $\color{#e69485}{\text{    ᵖⁱᵉᶜᵉˢ‎ ‎ ‎  ‎ 　　  }}$ $\color{#f58c8c}{\text{     ᵒᶠ‎ ‎ ‎     ᵐᵉ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=e6859c&style=plastic)  $\color{#d97e91}{\text{ ‎ ‎ ‎    ‎ ‎ ‎    ᵗⁱˡˡ ‎ ‎ ‎    ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ‎ ‎ ‎    ‎ ‎ ‎     ᵗᵒᵒ ‎ ‎ ‎    ʰᵉᵃᵛʸ }}$
 
-$\color{#34916f}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+$\color{#e68585}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="120" height="50" alt="image" src="https://github.com/user-attachments/assets/25cf2eb7-c33a-4d8f-a10f-48c8fc6e5d34" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="115" height="50" alt="image" src="https://github.com/user-attachments/assets/4894e20f-e126-4701-a054-e5b602d453de" />](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="102" height="47" alt="image" src="https://github.com/user-attachments/assets/59055f17-1978-4c0a-b48e-caafac7f6443" />](https://rentry.co/xxxzu)​ ‎ ‎
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="121" height="70" alt="image" src="https://github.com/user-attachments/assets/14a37646-dcb7-490f-a4af-7f4de50ba0ea" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="105" height="70" alt="image" src="https://github.com/user-attachments/assets/29252776-cfba-4168-b848-bce31d171729"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="111" height="70" alt="image" src="https://github.com/user-attachments/assets/54d39431-4d90-4512-9f15-6047522fdfd9" />
+](https://rentry.co/xxxzu)​ ‎ ‎
 
 <div align="center">
-<img width="213" height="74" alt="ab0dae4358634e380fcb6ea227ed3c7b" src="https://github.com/user-attachments/assets/78328a2e-5f47-4d8e-937f-6e46bc134b9a" />
-
      
 
 
  
 
- 
-
-
-<img width="700" height="150" alt="image" src="https://github.com/user-attachments/assets/d74058b9-011e-48d1-9636-a3f6f4b6d517" />
+<img width="1000" height="301" alt="image" src="https://github.com/user-attachments/assets/41979fb9-9f44-4c35-9b92-3cec96e2a80a" />
 
 
 
