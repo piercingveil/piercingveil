@@ -27,13 +27,9 @@ $\color{#e68585}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　�
      
 
 
- 
-
 <img width="1000" height="301" alt="image" src="https://github.com/user-attachments/assets/41979fb9-9f44-4c35-9b92-3cec96e2a80a" />
 
 
-
-<img width="86" height="60" alt="image" src="https://github.com/user-attachments/assets/0775fe3e-cbc3-4a7e-af41-6ee3bc9ab8aa" /><img width="80" height="63" alt="image" src="https://github.com/user-attachments/assets/4625fe8d-f289-4253-a52d-44f3c348b599" /><img width="83" height="65" alt="image" src="https://github.com/user-attachments/assets/baa980a3-71fd-4e65-a4f0-903cfde2ed25" />
 
 
 
