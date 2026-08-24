@@ -18,7 +18,7 @@ $\color{#eda091}{\text{  .  .   ⋆˚｡˚　ʸᵒᵘ'ʳᵉ ᵃˡˡ ⁱ ⁿᵉ�
 
    
 $\color{#e6a785}{\text{    ˡᵒᵛᵉ'ˢ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#e69485}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#f58c8c}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=faa7bb&style=plastic)  $\color{#f5b5c2}{\text{ ‎ ‎ ‎     ᵇᵘᵗ    ‎ ‎ ‎ ᵖʳᶦᵈᵉ'ˢ    ‎ ‎ ‎ ᵍᵒᶦⁿᵍ‎  ‎ ‎ ‎     }}$
-$\color{#e6bad2}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ ᵗʰᵉ ᵈᵉᵃᵗʰ ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
+$\color{#ebc7d0}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ ᵗʰᵉ ᵈᵉᵃᵗʰ ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 $\color{#e68585}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="121" height="70" alt="image" src="https://github.com/user-attachments/assets/14a37646-dcb7-490f-a4af-7f4de50ba0ea" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="105" height="70" alt="image" src="https://github.com/user-attachments/assets/29252776-cfba-4168-b848-bce31d171729"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="111" height="70" alt="image" src="https://github.com/user-attachments/assets/54d39431-4d90-4512-9f15-6047522fdfd9" />
