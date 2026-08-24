@@ -22,7 +22,7 @@ $\color{#ebc7d0}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ ᵗʰᵉ ᵈᵉᵃᵗʰ ᵒ
 $\color{#e68585}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="121" height="70" alt="image" src="https://github.com/user-attachments/assets/14a37646-dcb7-490f-a4af-7f4de50ba0ea" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="105" height="70" alt="image" src="https://github.com/user-attachments/assets/29252776-cfba-4168-b848-bce31d171729"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="111" height="70" alt="image" src="https://github.com/user-attachments/assets/54d39431-4d90-4512-9f15-6047522fdfd9" />
-](https://rentry.co/xxxzu)​ ‎ ‎
+]((https://ruikamishirozu.carrd.co/))​ ‎ ‎
 
 <div align="center">
      
