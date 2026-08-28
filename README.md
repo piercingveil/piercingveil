@@ -34,6 +34,7 @@ $\color{#e68585}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　�
 
 
 [evil yume](https://github.com/ponytown-yumes)
+<img width="375" height="328" alt="image" src="https://github.com/user-attachments/assets/659d1aca-2db3-4144-8e17-c48594810ed4" />
 
 
 
