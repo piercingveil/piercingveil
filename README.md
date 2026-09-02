@@ -2,7 +2,7 @@
 
 
  <div align="center">  
-<img width="1073" height="304" alt="image" src="https://github.com/user-attachments/assets/006431fe-94e5-4cae-bc77-83c5aede9f4d" />
+<img width="1073" height="294" alt="image" src="https://github.com/user-attachments/assets/006431fe-94e5-4cae-bc77-83c5aede9f4d" />
 
 
 
@@ -11,7 +11,7 @@ $\color{#eda091}{\text{  .  .   ⋆˚｡˚　ʸᵒᵘ'ʳᵉ ᵃˡˡ ⁱ ⁿᵉ�
  
  
  
-<img width="504" height="335" alt="image" src="https://github.com/user-attachments/assets/11cfd9c5-b548-4703-a82b-ed33bebf4f1e" />
+<img width="454" height="300" alt="image" src="https://github.com/user-attachments/assets/11cfd9c5-b548-4703-a82b-ed33bebf4f1e" />
 
 
 
