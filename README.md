@@ -18,7 +18,7 @@ $\color{#5a1085}{\text{  .  .   ⋆˚｡˚　ʸᵒᵘ'ʳᵉ ᵃˡˡ ⁱ ⁿᵉ�
 
 
    
-$\color{#7D3F7D}{\text{    ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#A5555E}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#b57b48}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=43157a&style=plastic)  $\color{#b57b48}{\text{ ‎ ‎  ᵖʳᶦᵈᵉ'ˢ    }}$
+$\color{#7D3F7D}{\text{    ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#A5555E}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#b57b48}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=381069&style=plastic)  $\color{#b57b48}{\text{ ‎ ‎  ᵖʳᶦᵈᵉ'ˢ    }}$
 $\color{#9A4F66}{\text{ ‎ ‎ ᵍᵒᶦⁿᵍ‎   }}$
 $\color{#854377}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ  }}$
 $\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ ‎ ‎ ‎  }}$
