@@ -2,22 +2,23 @@
 
 
  <div align="center">  
-<img width="1073" height="294" alt="image" src="https://github.com/user-attachments/assets/006431fe-94e5-4cae-bc77-83c5aede9f4d" />
+<img width="760" height="125" alt="image" src="https://github.com/user-attachments/assets/274bce46-0bf7-452d-b72b-02df5adddb02" />
 
 
 
 
-$\color{#eda091}{\text{  .  .   ⋆˚｡˚　ʸᵒᵘ'ʳᵉ ᵃˡˡ ⁱ ⁿᵉᵉᵈ﹗ᛝ }}$  $\color{#de8587}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#de859e}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+$\color{#5a1085}{\text{  .  .   ⋆˚｡˚　ʸᵒᵘ'ʳᵉ ᵃˡˡ ⁱ ⁿᵉᵉᵈ﹗ᛝ }}$  $\color{#c854ce}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
  
  
-<img width="454" height="300" alt="image" src="https://github.com/user-attachments/assets/11cfd9c5-b548-4703-a82b-ed33bebf4f1e" />
+<img width="640" height="350" alt="image" src="https://github.com/user-attachments/assets/04db66de-591e-4a52-a510-625105c305a0" />
+
 
 
 
 
    
-$\color{#e6a785}{\text{    ˡᵒᵛᵉ'ˢ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#e69485}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#f58c8c}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚sillybillys!˚&color=faa7bb&style=plastic)  $\color{#f5b5c2}{\text{ ‎ ‎ ‎     ᵇᵘᵗ    ‎ ‎ ‎ ᵖʳᶦᵈᵉ'ˢ    ‎ ‎ ‎ ᵍᵒᶦⁿᵍ‎  ‎ ‎ ‎     }}$
+$\color{#e6a785}{\text{    ˡᵒᵛᵉ'ˢ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#e69485}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#f58c8c}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=d1a664&style=plastic)  $\color{#f5b5c2}{\text{ ‎ ‎  ᵖʳᶦᵈᵉ'ˢ    ‎ ‎ ‎ ᵍᵒᶦⁿᵍ‎   }}$
 $\color{#ebc7d0}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ ᵗʰᵉ ᵈᵉᵃᵗʰ ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 $\color{#e68585}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
