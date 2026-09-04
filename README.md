@@ -18,14 +18,15 @@ $\color{#5a1085}{\text{  .  .   ⋆˚｡˚　ʸᵒᵘ'ʳᵉ ᵃˡˡ ⁱ ⁿᵉ�
 
 
    
-$\color{#7D3F7D}{\text{    ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#A5555E}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#C16648}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=FFA175&style=plastic)  $\color{#B9614E}{\text{ ‎ ‎  ᵖʳᶦᵈᵉ'ˢ    }}$
+$\color{#7D3F7D}{\text{    ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#A5555E}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#b57b48}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=FFA175&style=plastic)  $\color{#b57b48}{\text{ ‎ ‎  ᵖʳᶦᵈᵉ'ˢ    }}$
 $\color{#9A4F66}{\text{ ‎ ‎ ᵍᵒᶦⁿᵍ‎   }}$
 $\color{#854377}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ  }}$
 $\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ ‎ ‎ ‎  }}$
 $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 $\color{#892c9e}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="121" height="70" alt="image" src="https://github.com/user-attachments/assets/14a37646-dcb7-490f-a4af-7f4de50ba0ea" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="105" height="70" alt="image" src="https://github.com/user-attachments/assets/29252776-cfba-4168-b848-bce31d171729"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="111" height="70" alt="image" src="https://github.com/user-attachments/assets/54d39431-4d90-4512-9f15-6047522fdfd9" />](https://ruikamishirozu.carrd.co/)​ ‎ ‎
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="118" height="75" alt="image" src="https://github.com/user-attachments/assets/c3f445b2-6d37-4ec7-b242-8052be8e006a"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" />
+](https://ruikamishirozu.carrd.co/)​ ‎ ‎
 
 <div align="center">
      
