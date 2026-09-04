@@ -39,7 +39,7 @@ $\color{#892c9e}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　�
 [evil yume](https://github.com/ponytown-yumes) eekkk [my irl malewife](https://yyyyyyyyyyyyu.straw.page/)shrine awwwh 1/09/26
 
 
-<img width="230" height="143" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
+<img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
 whoever this is I WILL FIND you and TICKLE you. (with much love ofc)
 
 
