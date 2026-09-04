@@ -30,9 +30,6 @@ $\color{#892c9e}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　�
 
 <div align="center">
      
-<img width="20" height="20" alt="tumblr_4ced36f942c37d5b9cecd029e54a7380_12a2b750_75" src="https://github.com/user-attachments/assets/f4d04fd7-d634-4893-8414-707a1f7c4372" />
-<img width="58" height="18" alt="tumblr_4003a668cbbe7037e9dd2ff128e4306c_61be5da3_75" src="https://github.com/user-attachments/assets/2be908ed-7022-494e-97dd-654c9e331c30" />
-<img width="20" height="20" alt="tumblr_4ced36f942c37d5b9cecd029e54a7380_12a2b750_75" src="https://github.com/user-attachments/assets/c5c0bd08-a034-4cf6-83a5-54908edc2660" />
 
 <img width="750" height="125" alt="image" src="https://github.com/user-attachments/assets/82a422ab-8291-4adb-96d3-8a0d823a2abd" />
 
