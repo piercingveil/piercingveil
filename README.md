@@ -36,12 +36,22 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 　　　✦　　　.　   }}$   $\color{#793079}{\text{　˚　　 . ✦　 ☁︎
 ⏾ ★ }}$   $\color{#6B237F}{\text{ ✦　 ☁︎　☁︎..✦   }}$  
 
+<details>
+  <summary>
+    𝙖𝙬𝙖𝙧𝙙𝙨
+  </summary>
+  <br>
+
+[ponytown's cherie](https://github.com/pt-hall-of-media/pt-hall-of-media) [pt-players!](https://github.com/pt-players) [pt-friendships](https://github.com/pt-friendships)[evil yume](https://github.com/ponytown-yumes)
+
+</details>
+
 <img width="750" height="125" alt="image" src="https://github.com/user-attachments/assets/82a422ab-8291-4adb-96d3-8a0d823a2abd" />
 
 
 
 
-[evil yume](https://github.com/ponytown-yumes) eekkk [my irl malewife](https://yyyyyyyyyyyyu.straw.page/)shrine awwwh 1/09/26
+ eekkk [my irl malewife](https://yyyyyyyyyyyyu.straw.page/)shrine awwwh 1/09/26
 
 
 <img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
