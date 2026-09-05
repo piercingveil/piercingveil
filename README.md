@@ -23,7 +23,8 @@ $\color{#9A4F66}{\text{ ‎ ‎ ᵍᵒᶦⁿᵍ‎   }}$
 $\color{#854377}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ  }}$
 $\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ ‎ ‎ ‎  }}$
 $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
-$\color{#892c9e}{\text{     ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+
+$\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{   　　 . 　　 　˚　    }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊  ݁₊ ⊹ ࿐࿔﹒﹒﹒    }}$ 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="118" height="75" alt="image" src="https://github.com/user-attachments/assets/c3f445b2-6d37-4ec7-b242-8052be8e006a"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" />
 ](https://ruikamishirozu.carrd.co/)​ ‎ ‎
