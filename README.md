@@ -29,8 +29,12 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="118" height="75" alt="image" src="https://github.com/user-attachments/assets/c3f445b2-6d37-4ec7-b242-8052be8e006a"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" />
 ](https://ruikamishirozu.carrd.co/)​ ‎ ‎
 
-<div align="center">
-     
+
+ $\color{#EFA34B}{\text{　˚　　 . ✦　  }}$    $\color{#D78C54}{\text{　　　 . ★      ⋆.
+⏾   　　˚　　   }}$   $\color{#C47A5B}{\text{　　☁︎ 　✦　　　.☁︎✦   }}$   $\color{#A35968}{\text{　 . ★
+　 　*　　☁︎ 　✦　.　  }}$   $\color{#8D4371}{\text{
+　　　✦　　　.　   }}$   $\color{#793079}{\text{　˚　　 . ✦　 ☁︎
+⏾ ★ }}$   $\color{#6B237F}{\text{ ✦　 ☁︎　☁︎..✦   }}$  
 
 <img width="750" height="125" alt="image" src="https://github.com/user-attachments/assets/82a422ab-8291-4adb-96d3-8a0d823a2abd" />
 
