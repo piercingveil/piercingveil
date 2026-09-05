@@ -7,7 +7,7 @@
 
 
 
-$\color{#5a1085}{\text{  .  .   ⋆˚｡˚　ʸᵒᵘ'ʳᵉ ᵃˡˡ ⁱ ⁿᵉᵉᵈ﹗ᛝ }}$  $\color{#c854ce}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
+$\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#c854ce}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
  
  
  
