@@ -38,7 +38,7 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 
 <details>
   <summary>
-    𝙖𝙬𝙖𝙧𝙙𝙨
+    $\color{#A13276}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨   }}$ 
   </summary>
   <br>
 
