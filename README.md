@@ -9,7 +9,7 @@
 
 
 
-$\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#c854ce}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ 2 ᵇᵉᶜᵒᵐᵉ ᵐʸ ᵒᵒᵐᶠⁱᵉ♡´･ᴗ･`♡  }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
+$\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#7C356F}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#7C356F}{\text{♡´･ᴗ･`♡ }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=5C136E&center=true&vCenter=true&width=465&lines=%22Moon+tell+me+if+I+could%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
  
