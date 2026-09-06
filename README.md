@@ -38,7 +38,7 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 　　　✦　　　.　   }}$   $\color{#793079}{\text{　˚　　 . ✦　 ☁︎
 ⏾ ★ }}$   $\color{#6B237F}{\text{ ✦　 ☁︎　☁︎..✦   }}$  
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=6F4288&width=435&lines=%22Tell+me,+tell+me+you+love+me%22;%22Come+back,+come+back+to+haunt+me%22;%22Won’t+you,+won’t+you+let+me+be+myself%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=6F4288&width=435&lines=%22Tell+me,+tell+me+you+love+me%22;%22Come+back,+come+back+to+haunt+me%22;%22Won’t+you,+won’t+you+let+me+be+myself%3F%22" alt="Typing SVG" /></a>
 
 
 
