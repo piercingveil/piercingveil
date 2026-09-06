@@ -26,13 +26,17 @@ $\color{#854377}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ  }}$
 $\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ ‎ ‎ ‎  }}$
 $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 
-$\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{   　　 . 　　 　˚　    }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊  ݁₊ ⊹ ࿐࿔﹒﹒﹒    }}$ 
+$\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{   　　 . 　　 　˚　    }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊  ݁₊ ⊹ ࿐࿔﹒﹒﹒    }}$ <img width="20" height="20" alt="tumblr_ff31f176703b5bc1fab9aa2eb439b92e_20cf7cd8_75" src="https://github.com/user-attachments/assets/81bd9ab3-bd67-41d6-8d40-aca45ee30d27" />
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎      [<img width="118" height="75" alt="image" src="https://github.com/user-attachments/assets/c3f445b2-6d37-4ec7-b242-8052be8e006a"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎ ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" />
-](https://ruikamishirozu.carrd.co/)​ ‎ ‎
+‎ ‎ ‎ $\color{#dea77a}{\text{ ͙͘͡★｡°⋆‎ }}$‎‎ <img width="20" height="20" alt="tumblr_2390a036edc509093e80a3caab5f0bf4_42066991_75" src="https://github.com/user-attachments/assets/e9259e97-35eb-4a92-a48a-558e92833612" />
+ ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎
+      [<img width="118" height="75" alt="image" src="https://github.com/user-attachments/assets/c3f445b2-6d37-4ec7-b242-8052be8e006a"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎
+ ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" />
+](https://ruikamishirozu.carrd.co/)​ ‎ ‎<img width="20" height="20" alt="tumblr_6a3875a8388668ba1ec190c647bbf248_c5c0270e_75" src="https://github.com/user-attachments/assets/4a2e981f-4869-4e6b-85af-5cff3c468141" /> $\color{#EFA34B}{\text{✧･ﾟ:                       　  }}$ 
 
 
- $\color{#EFA34B}{\text{　˚　　 . ✦　  }}$    $\color{#D78C54}{\text{　　　 . ★      ⋆.
+
+ $\color{#EFA34B}{\text{　˚　　 . ✦　  }}$  <img width="20" height="20" alt="tumblr_045c7e0c1b693a592b3e7739fce0ab1b_3c4eebf4_75" src="https://github.com/user-attachments/assets/61c7a78d-eb01-4480-8fae-4b5e24d5eb76" />  $\color{#D78C54}{\text{　　　 . ★      ⋆.
 ⏾   　　˚　　   }}$   $\color{#C47A5B}{\text{　　☁︎ 　✦　　　.☁︎✦   }}$   $\color{#A35968}{\text{　 . ★
 　 　*　　☁︎ 　✦　.　  }}$   $\color{#8D4371}{\text{
 　　　✦　　　.　   }}$   $\color{#793079}{\text{　˚　　 . ✦　 ☁︎
