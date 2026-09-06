@@ -49,8 +49,8 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 <img width="750" height="125" alt="image" src="https://github.com/user-attachments/assets/82a422ab-8291-4adb-96d3-8a0d823a2abd" />
 
 
-
- eekkk [my irl malewife](https://yyyyyyyyyyyyu.straw.page/)shrine awwwh 1/09/26
+$\color{#E89C4E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ㅤᘞ ˚ ۪:}}$
+ 
 
 
 <img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
