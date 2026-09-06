@@ -2,7 +2,9 @@
 
 
  <div align="center">  
-<img width="760" height="125" alt="image" src="https://github.com/user-attachments/assets/274bce46-0bf7-452d-b72b-02df5adddb02" />
+
+<img width="761" height="125" alt="image" src="https://github.com/user-attachments/assets/d717a594-fc23-4530-93dc-ace9bf60e79c" />
+
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=5C136E&center=false&vCenter=true&width=465&lines=%22Moon+tell+me+if+I+could%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
 
