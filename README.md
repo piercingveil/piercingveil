@@ -38,15 +38,6 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 
 
 
-<details>
-  <summary>
-    $\color{#A13276}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨   }}$ 
-  </summary>
-  <br>
-
-[ponytown's cherie](https://github.com/pt-hall-of-media/pt-hall-of-media) [pt-players!](https://github.com/pt-players) [pt-friendships](https://github.com/pt-friendships)[evil yume](https://github.com/ponytown-yumes)
-
-</details>
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=16&pause=450&color=793079&width=435&lines=%22My+thoughts+will+follow+you+into+your+dreams.%22;%22These+are+sunflowers.+They+always+face+the+sun.%22;%22That's+how+I+want+to+be+like...%22;%22Someone+who+always+sees+the+bright+side+of+things+-basil%22;%22You'll+forgive+yourself...+won't+you+Sunny%3F%22" alt="Typing SVG" /></a>
 
@@ -59,6 +50,15 @@ $\color{#E89C4E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=600&color=A13276&width=435&lines=%22Keep+you+close+and+one+day,+we'll+get+married%22;%22Break+all+your+bones+with+the+love+I+carry%22" alt="Typing SVG" /></a>
 
+<details>
+  <summary>
+    $\color{#742D70}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨   }}$ 
+  </summary>
+  <br>
+
+[ponytown's cherie](https://github.com/pt-hall-of-media/pt-hall-of-media) [pt-players!](https://github.com/pt-players) [pt-friendships](https://github.com/pt-friendships)[evil yume](https://github.com/ponytown-yumes)
+
+</details>
 <details>
   <summary>
     $\color{#70277D}{\text{ SUPER REAL THREAT TRUST   }}$ 
