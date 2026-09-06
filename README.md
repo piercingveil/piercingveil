@@ -56,7 +56,7 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 
 $\color{#E89C4E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$[<3ㅤ](https://yyyyyyyyyyyyu.straw.page/)
  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=600&color=362136&width=435&lines=%22Keep+you+close+and+one+day,+we'll+get+married%22;%22Break+all+your+bones+with+the+love+I+carry%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=600&color=A13276&width=435&lines=%22Keep+you+close+and+one+day,+we'll+get+married%22;%22Break+all+your+bones+with+the+love+I+carry%22" alt="Typing SVG" /></a>
 
 <img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
 whoever this is I WILL FIND you and TICKLE you. (with much love ofc)
