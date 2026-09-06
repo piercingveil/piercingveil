@@ -53,7 +53,7 @@ $\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
 
 <details>
   <summary>
-    $\color{#742D70}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ᓚ₍^..^₎♡  }}$ 
+    $\color{#742D70}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ᓚ₍`..`₎♡  }}$ 
   </summary>
   <br>
 
