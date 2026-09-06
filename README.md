@@ -9,7 +9,8 @@
 
 
 
-$\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#7C356F}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#7C356F}{\text{♡´･ᴗ･`♡ }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
+$\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="tumblr_b8a61173cd311078569850d077661c3e_518cb8ce_75" src="https://github.com/user-attachments/assets/06563521-f69f-4532-80a8-2e0efeb34b8a" />
+ $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#7C356F}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#7C356F}{\text{♡´･ᴗ･`♡ }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=5C136E&center=true&vCenter=true&width=465&lines=%22Moon+tell+me+if+I+could%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
  
@@ -26,7 +27,7 @@ $\color{#854377}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ  }}$
 $\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ ‎ ‎ ‎  }}$
 $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 
-$\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{   　　 . 　　 　˚　    }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊  ݁₊ ⊹ ࿐࿔﹒﹒﹒    }}$ <img width="20" height="20" alt="tumblr_ff31f176703b5bc1fab9aa2eb439b92e_20cf7cd8_75" src="https://github.com/user-attachments/assets/81bd9ab3-bd67-41d6-8d40-aca45ee30d27" />
+<img width="20" height="20" alt="tumblr_5b4b63c13a77c3f3e8f32a698f60f620_68f10d8a_75" src="https://github.com/user-attachments/assets/70888d8b-51d0-4936-be33-02076c1d800a" /> $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{   　　 . 　　 　˚　    }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊  ݁₊ ⊹ ࿐࿔﹒﹒﹒    }}$ <img width="20" height="20" alt="tumblr_ff31f176703b5bc1fab9aa2eb439b92e_20cf7cd8_75" src="https://github.com/user-attachments/assets/81bd9ab3-bd67-41d6-8d40-aca45ee30d27" />
 
 ‎ ‎ ‎ $\color{#dea77a}{\text{ ͙͘͡★｡°⋆‎ }}$‎‎ <img width="20" height="20" alt="tumblr_2390a036edc509093e80a3caab5f0bf4_42066991_75" src="https://github.com/user-attachments/assets/e9259e97-35eb-4a92-a48a-558e92833612" />
  ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎
