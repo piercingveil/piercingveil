@@ -50,7 +50,6 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 
 
 
-
  eekkk [my irl malewife](https://yyyyyyyyyyyyu.straw.page/)shrine awwwh 1/09/26
 
 
