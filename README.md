@@ -49,11 +49,11 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 
 $\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$[<3ㅤ](https://yyyyyyyyyyyyu.straw.page/)
  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=21&pause=600&color=A13276&width=435&lines=%22Keep+you+close+and+one+day,+we'll+get+married%22;%22Break+all+your+bones+with+the+love+I+carry%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=A13276&width=435&lines=%22Keep+you+close+and+one+day,+we'll+get+married%22;%22Break+all+your+bones+with+the+love+I+carry%22" alt="Typing SVG" /></a>
 
 <details>
   <summary>
-    $\color{#742D70}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨   }}$ 
+    $\color{#742D70}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ᓚ₍^..^₎♡  }}$ 
   </summary>
   <br>
 
