@@ -4,7 +4,7 @@
  <div align="center">  
 <img width="760" height="125" alt="image" src="https://github.com/user-attachments/assets/274bce46-0bf7-452d-b72b-02df5adddb02" />
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=700&color=70277D&center=true&vCenter=true&width=465&lines=%22Moon+tell+me+if+I+could%22;%22Send+up+my+heart+to+you%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&pause=700&color=470675&center=true&vCenter=true&width=465&lines=%22Moon+tell+me+if+I+could%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
 
 
 $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#c854ce}{\text{ 　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#dea77a}{\text{ 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    }}$ 
