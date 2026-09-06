@@ -50,7 +50,7 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 
 $\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$[<3ㅤ](https://yyyyyyyyyyyyu.straw.page/)
  
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=A13276&width=435&lines=%22Keep+you+close+and+one+day,+we'll+get+married%22;%22Break+all+your+bones+with+the+love+I+carry%22" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=A13276&width=435&lines=%22Tell+me,+tell+me+you+love+me%22;%22Come+back,+come+back+to+haunt+me%22" alt="Typing SVG" /></a>
 
 <details>
   <summary>
