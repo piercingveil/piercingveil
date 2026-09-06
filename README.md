@@ -50,7 +50,8 @@ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\tex
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=16&pause=450&color=793079&width=435&lines=%22My+thoughts+will+follow+you+into+your+dreams.%22;%22These+are+sunflowers.+They+always+face+the+sun.%22;%22That's+how+I+want+to+be+like...%22;%22Someone+who+always+sees+the+bright+side+of+things+-basil%22;%22You'll+forgive+yourself...+won't+you+Sunny%3F%22" alt="Typing SVG" /></a>
 
-<img width="750" height="125" alt="image" src="https://github.com/user-attachments/assets/82a422ab-8291-4adb-96d3-8a0d823a2abd" />
+
+<img width="745" height="140" alt="image" src="https://github.com/user-attachments/assets/dd17b3ae-ffaa-4db6-9731-47623f39a70d" />
 
 
 
@@ -58,8 +59,17 @@ $\color{#E89C4E}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=600&color=A13276&width=435&lines=%22Keep+you+close+and+one+day,+we'll+get+married%22;%22Break+all+your+bones+with+the+love+I+carry%22" alt="Typing SVG" /></a>
 
+<details>
+  <summary>
+    $\color{#70277D}{\text{ SUPER REAL THREAT TRUST   }}$ 
+  </summary>
+  <br>
+
 <img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
 whoever this is I WILL FIND you and TICKLE you. (with much love ofc)
+
+
+</details>
 
 
 
