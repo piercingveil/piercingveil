@@ -81,7 +81,7 @@ whoever this is I WILL FIND you and TICKLE you. (with much love ofc)
 
 
 </details>
-<img width="204" height="204" alt="image" src="https://github.com/user-attachments/assets/c0d90db2-6b71-478c-a3ba-83fc801603a2" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e434313-7439-4a36-b7fa-6ccffe443c0c" />
+<img width="202" height="202" alt="image" src="https://github.com/user-attachments/assets/c0d90db2-6b71-478c-a3ba-83fc801603a2" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e434313-7439-4a36-b7fa-6ccffe443c0c" />
 
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=6F4288&width=435&lines=%22Tell+me,+tell+me+you+love+me%22;%22Come+back,+come+back+to+haunt+me%22;%22Won't+you,+won't+you+let+me+be+myself%22" alt="Typing SVG" /></a>
 
