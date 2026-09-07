@@ -72,11 +72,11 @@ $\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
   </summary>
   <br>
 @snipebomb on tumblr for below layout!
-other graphics made from pinterest pins!<img width="2048" height="171" alt="1a1a3e28be7c0cbed0de5f764ff149ef9083fd92" src="https://github.com/user-attachments/assets/a9f06e56-697f-438c-a026-3882fb07e366" />
-
+other graphics made from pinterest pins!
 
 
 <img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
+
 whoever this is I WILL FIND you and TICKLE you. (with much love ofc)
 
 
