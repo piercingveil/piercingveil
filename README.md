@@ -49,11 +49,12 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 
 <img width="745" height="140" alt="image" src="https://github.com/user-attachments/assets/dd17b3ae-ffaa-4db6-9731-47623f39a70d" />
 
-
+<img width="848" height="51" alt="1a1a3e28be7c0cbed0de5f764ff149ef9083fd92" src="https://github.com/user-attachments/assets/bb998757-cdff-49fa-a07f-4434d692ee55" />
 
 $\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$[<3ㅤ](https://yyyyyyyyyyyyu.straw.page/)
  
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=450&color=A13276&width=435&lines=%22My+thoughts+will+follow+you+into+your+dreams.%22;%22These+are+sunflowers.+They+always+face+the+sun.%22;%22That's+how+I+want+to+be+like...%22;%22Someone+who+always+sees+the+bright+side+of+things+-basil%22;%22You'll+forgive+yourself...+won't+you+Sunny%3F%22" alt="Typing SVG" /></a>
+
 
 
 <details>
@@ -70,13 +71,20 @@ $\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
     $\color{#70277D}{\text{ 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 ૮₍˶ᵔ ᵕ ᵔ˶ ₎ა  }}$ 
   </summary>
   <br>
+@snipebomb on tumblr for below layout!
+other graphics made from pinterest pins!<img width="2048" height="171" alt="1a1a3e28be7c0cbed0de5f764ff149ef9083fd92" src="https://github.com/user-attachments/assets/a9f06e56-697f-438c-a026-3882fb07e366" />
+
+
 
 <img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
 whoever this is I WILL FIND you and TICKLE you. (with much love ofc)
 
 
 </details>
+<img width="204" height="204" alt="image" src="https://github.com/user-attachments/assets/c0d90db2-6b71-478c-a3ba-83fc801603a2" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e434313-7439-4a36-b7fa-6ccffe443c0c" />
 
+
+<img width="2000" height="800" alt="image" src="https://github.com/user-attachments/assets/9d1370ba-74a9-4855-97d5-2f31121f03b1" />
 
 
 
