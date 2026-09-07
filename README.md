@@ -13,7 +13,7 @@ $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="
  $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#7C356F}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#7C356F}{\text{♡´･ᴗ･`♡ }}$ <img width="20" height="20" alt="tumblr_2caa967a32c830936731f1ace4e8ed08_ac5308d8_75" src="https://github.com/user-attachments/assets/57d2a901-44e4-4fa7-9c8f-b2324a8ce397" />
 $\color{#dea77a}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
  
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=5C136E&center=true&vCenter=true&width=465&lines=%22Moon+tell+me+if+I+could%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=5C136E&center=true&vCenter=true&width=465&lines=%22Moon,+tell+me+if+I+could...%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
  
 <img width="640" height="350" alt="image" src="https://github.com/user-attachments/assets/04db66de-591e-4a52-a510-625105c305a0" />
 
