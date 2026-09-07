@@ -52,8 +52,7 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 
 <img width="848" height="51" alt="1a1a3e28be7c0cbed0de5f764ff149ef9083fd92" src="https://github.com/user-attachments/assets/bb998757-cdff-49fa-a07f-4434d692ee55" />
 
-$\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$[<3ㅤ](https://yyyyyyyyyyyyu.straw.page/)
- 
+$\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$ 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=450&color=A13276&width=435&lines=%22My+thoughts+will+follow+you+into+your+dreams.%22;%22These+are+sunflowers.+They+always+face+the+sun.%22;%22That's+how+I+want+to+be+like...%22;%22Someone+who+always+sees+the+bright+side+of+things+-basil%22;%22You'll+forgive+yourself...+won't+you+Sunny%3F%22" alt="Typing SVG" /></a>
 
 
