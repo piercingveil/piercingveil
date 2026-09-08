@@ -33,8 +33,10 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 ‎ ‎ ‎ $\color{#dea77a}{\text{ ͙͘͡★｡°⋆‎ }}$‎‎ <img width="20" height="20" alt="tumblr_2390a036edc509093e80a3caab5f0bf4_42066991_75" src="https://github.com/user-attachments/assets/e9259e97-35eb-4a92-a48a-558e92833612" />
  ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎
       [<img width="118" height="75" alt="image" src="https://github.com/user-attachments/assets/c3f445b2-6d37-4ec7-b242-8052be8e006a"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎
- ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" />
-](https://ruikamishirozu.carrd.co/)​ ‎ ‎<img width="20" height="20" alt="tumblr_2caa967a32c830936731f1ace4e8ed08_ac5308d8_75" src="https://github.com/user-attachments/assets/57d2a901-44e4-4fa7-9c8f-b2324a8ce397" /> $\color{#EFA34B}{\text{✧･ﾟ:                       　  }}$ 
+ ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" /> 
+](https://ruikamishirozu.carrd.co/)​ ‎ ‎ ‎ ‎
+ ‎ ‎    [<img width="145" height="75" alt="image" src="https://github.com/user-attachments/assets/e81e4591-3774-4f10-bbe9-dd95d767c9e0" />](https://en.pronouns.page/@zuuu)
+ ‎ ‎<img width="20" height="20" alt="tumblr_2caa967a32c830936731f1ace4e8ed08_ac5308d8_75" src="https://github.com/user-attachments/assets/57d2a901-44e4-4fa7-9c8f-b2324a8ce397" /> $\color{#EFA34B}{\text{✧･ﾟ:                       　  }}$ 
 
 
 
