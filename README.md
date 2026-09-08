@@ -10,7 +10,7 @@
 
 
 $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="tumblr_b8a61173cd311078569850d077661c3e_518cb8ce_75" src="https://github.com/user-attachments/assets/06563521-f69f-4532-80a8-2e0efeb34b8a" />
- $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#7C356F}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#7C356F}{\text{♡´･ᴗ･`♡ }}$ <img width="20" height="20" alt="tumblr_2caa967a32c830936731f1ace4e8ed08_ac5308d8_75" src="https://github.com/user-attachments/assets/57d2a901-44e4-4fa7-9c8f-b2324a8ce397" />
+ $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#7C356F}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#7C356F}{\text{♡´･ᴗ･`♡ }}$ 
 $\color{#dea77a}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=5C136E&center=true&vCenter=true&width=465&lines=%22Moon,+tell+me+if+I+could...%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
@@ -34,7 +34,7 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
  ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎
       [<img width="118" height="75" alt="image" src="https://github.com/user-attachments/assets/c3f445b2-6d37-4ec7-b242-8052be8e006a"/>](https://xzuz.straw.page) ‎ ‎ ‎ ‎
  ‎ ‎     [<img width="103" height="75" alt="image" src="https://github.com/user-attachments/assets/895a75a3-bfab-4fdd-8936-9b4634bd2616" />
-](https://ruikamishirozu.carrd.co/)​ ‎ ‎<img width="20" height="20" alt="tumblr_6a3875a8388668ba1ec190c647bbf248_c5c0270e_75" src="https://github.com/user-attachments/assets/4a2e981f-4869-4e6b-85af-5cff3c468141" /> $\color{#EFA34B}{\text{✧･ﾟ:                       　  }}$ 
+](https://ruikamishirozu.carrd.co/)​ ‎ ‎<img width="20" height="20" alt="tumblr_2caa967a32c830936731f1ace4e8ed08_ac5308d8_75" src="https://github.com/user-attachments/assets/57d2a901-44e4-4fa7-9c8f-b2324a8ce397" /> $\color{#EFA34B}{\text{✧･ﾟ:                       　  }}$ 
 
 
 
