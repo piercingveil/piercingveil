@@ -10,8 +10,7 @@
 
 
 $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="tumblr_b8a61173cd311078569850d077661c3e_518cb8ce_75" src="https://github.com/user-attachments/assets/06563521-f69f-4532-80a8-2e0efeb34b8a" />
- $\color{#480178}{\text{🐈‍⬛ :: ˡᵉ}}$ $\color{#6B237F}{\text{ⁿ'ˢ}}$ $\color{#8D4371}{\text{ᵐ}}$ $\color{#9A506C}{\text{ʸ}}$ $\color{#AF6563}{\text{ᵖᵉ}}$ $\color{#C47A5B}{\text{ᵗ}}$ $\color{#CF8457}{\text{ᶜᵃᵗ }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#c763e0}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#c763e0}{\text{♡´･ᴗ･`♡ }}$ 
-$\color{#a66fbf}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
+ $\color{#480178}{\text{🐈‍⬛ :: ˡᵉ}}$ $\color{#6B237F}{\text{ⁿ'ˢ}}$ $\color{#8D4371}{\text{ᵐ}}$ $\color{#9A506C}{\text{ʸ}}$ $\color{#AF6563}{\text{ᵖᵉ}}$ $\color{#C47A5B}{\text{ᵗ}}$ $\color{#CF8457}{\text{ᶜᵃᵗ }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#7b26a3}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#c763e0}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#7b26a3}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#c763e0}{\text{♡´･ᴗ･`♡ }}$ $\color{#7b26a3}{\text{˚. ݁₊  . ⋆. ࿐࿔::﹒﹒}}$ $\color{#c763e0}{\text{ 　୭˚. ᵎᵎ  }}$ 
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=9a2d9c&center=true&vCenter=true&width=465&lines=%22Moon,+tell+me+if+I+could...%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
  
