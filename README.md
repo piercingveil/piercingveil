@@ -21,13 +21,13 @@ $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="
 
 
    
-$\color{#7D3F7D}{\text{    ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#A5555E}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#b57b48}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=793079&style=plastic)  $\color{#b57b48}{\text{ ‎ ‎  ᵖʳᶦᵈᵉ'ˢ    }}$
-$\color{#9A4F66}{\text{ ‎ ‎ ᵍᵒᶦⁿᵍ‎   }}$
-$\color{#854377}{\text{ ‎ ‎ ‎    ᵗᵒ ᵇᵉ  }}$
-$\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ ‎ ‎ ‎  }}$
-$\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
+$\color{#7D3F7D}{\text{ 𝄞𝄢⋆.˚   ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#c9638e}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#dbb484}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=793079&style=plastic)  $\color{#dbb484}{\text{ ᵖʳᶦᵈᵉ'ˢ}}$
+$\color{#c9638e}{\text{ ‎ ᵍᵒᶦⁿᵍ‎   }}$
+$\color{#854377}{\text{ ᵗᵒ ᵇᵉ  }}$
+$\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ }}$
+$\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ  ݁⊹. ݁˖ . ݁‎  }}$
 
- $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{   　　 . 　　 　˚　    }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊  ݁₊ ⊹ ࿐࿔﹒﹒﹒    }}$ <img width="20" height="20" alt="tumblr_ff31f176703b5bc1fab9aa2eb439b92e_20cf7cd8_75" src="https://github.com/user-attachments/assets/81bd9ab3-bd67-41d6-8d40-aca45ee30d27" />
+ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{   　　 . 　　 　˚　    }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊ ݁₊⊹}}$ $\color{#e6c887}{\text{࿐࿔﹒﹒﹒    }}$ <img width="20" height="20" alt="tumblr_ff31f176703b5bc1fab9aa2eb439b92e_20cf7cd8_75" src="https://github.com/user-attachments/assets/81bd9ab3-bd67-41d6-8d40-aca45ee30d27" />
 
 ‎ ‎ ‎ $\color{#dea77a}{\text{ ͙͘͡★｡°⋆‎ }}$‎‎ <img width="20" height="20" alt="tumblr_2390a036edc509093e80a3caab5f0bf4_42066991_75" src="https://github.com/user-attachments/assets/e9259e97-35eb-4a92-a48a-558e92833612" />
  ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎
