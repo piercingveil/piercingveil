@@ -10,7 +10,8 @@
 
 
 $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="tumblr_b8a61173cd311078569850d077661c3e_518cb8ce_75" src="https://github.com/user-attachments/assets/06563521-f69f-4532-80a8-2e0efeb34b8a" />
- $\color{#480178}{\text{🐈‍⬛ :: ˡᵉ}}$ $\color{#6B237F}{\text{ⁿ'ˢ}}$ $\color{#8D4371}{\text{ᵐ}}$ $\color{#9A506C}{\text{ʸ}}$ $\color{#AF6563}{\text{ᵖᵉ}}$ $\color{#C47A5B}{\text{ᵗ}}$ $\color{#CF8457}{\text{ᶜᵃᵗ }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#7b26a3}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#d1bb9f}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#7b26a3}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#d1bb9f}{\text{♡´･ᴗ･`♡ }}$ $\color{#7b26a3}{\text{˚. ݁₊  . ⋆. ࿐࿔::﹒﹒}}$ $\color{#d1bb9f}{\text{ 　୭˚. ᵎᵎ  }}$ 
+ $\color{#480178}{\text{🐈‍⬛ :: ˡᵉ}}$ $\color{#6B237F}{\text{ⁿ'ˢ}}$ $\color{#8D4371}{\text{ᵐ}}$ $\color{#9A506C}{\text{ʸ}}$ $\color{#AF6563}{\text{ᵖᵉ}}$ $\color{#C47A5B}{\text{ᵗ}}$ $\color{#CF8457}{\text{ᶜᵃᵗ }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#7b26a3}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#d1bb9f}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#7b26a3}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#d1bb9f}{\text{♡ }}$ <img width="50" height="26" alt="image" src="https://github.com/user-attachments/assets/9b60a9e8-8120-494a-8096-17a6423ff28d" />
+ $\color{#7b26a3}{\text{˚. ⋆. ࿐࿔﹒}}$ $\color{#d1bb9f}{\text{ 　୭˚. ᵎᵎ  }}$ 
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=9a2d9c&center=true&vCenter=true&width=465&lines=%22Moon,+tell+me+if+I+could...%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
  
@@ -21,13 +22,15 @@ $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="
 
 
    
-$\color{#7D3F7D}{\text{ 𝄞𝄢⋆.˚   ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#c9638e}{\text{    ᵗᵒ ᵍᵉᵗ  ‎ ‎  ‎ 　　  }}$ $\color{#d1bb9f}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=793079&style=plastic)  $\color{#d1bb9f}{\text{ ᵖʳᶦᵈᵉ'ˢ}}$
+<img width="35" height="20" alt="image" src="https://github.com/user-attachments/assets/899085f9-ab27-4f55-b3d6-42530d63662a" /> $\color{#7D3F7D}{\text{ 𝄞𝄢⋆ ˡᵒᵛᵉ'ˢ  }}$ $\color{#914A6D}{\text{ ᵍᵒᶦⁿᵍ ‎ ‎ ‎　　  }}$ $\color{#c9638e}{\text{    ᵗᵒ ᵍᵉᵗ}}$ $\color{#d1bb9f}{\text{     ʸᵒᵘ ᵏᶦˡˡᵉᵈ    　　　  }}$  ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚lovebirds!˚&color=793079&style=plastic)  $\color{#d1bb9f}{\text{ ᵖʳᶦᵈᵉ'ˢ}}$
 $\color{#c9638e}{\text{ ‎ ᵍᵒᶦⁿᵍ‎   }}$
 $\color{#854377}{\text{ ᵗᵒ ᵇᵉ  }}$
 $\color{#733985}{\text{ ‎ ‎ᵗʰᵉ ᵈᵉᵃᵗʰ }}$
 $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ  ݁⊹. ݁˖ . ݁‎  }}$
 
- $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{ . ˚　  ⋆｡˚   }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊ ݁₊⊹}}$ $\color{#e6c887}{\text{࿐࿔﹒﹒﹒    }}$ <img width="20" height="20" alt="tumblr_ff31f176703b5bc1fab9aa2eb439b92e_20cf7cd8_75" src="https://github.com/user-attachments/assets/81bd9ab3-bd67-41d6-8d40-aca45ee30d27" />
+ $\color{#560E87}{\text{   　 　˚　　. ݁₊ ⊹   }}$ $\color{#661E81}{\text{  . ݁˖ 　  }}$ $\color{#793079}{\text{     ⋆˚｡˚　　　　 　　 ⋆. ࿐࿔﹒﹒﹒    }}$ $\color{#9E546A}{\text{ . ˚　  ⋆｡˚   }}$ $\color{#BA705F}{\text{　 ⋆. ﹒﹒﹒    }}$ $\color{#D78C54}{\text{     ⋆｡˚　　 . ݁   }}$ $\color{#F5A948}{\text{　. ݁₊ ݁₊⊹}}$ $\color{#e6c887}{\text{࿐࿔﹒﹒﹒    }}$ <img width="25" height="25" alt="image" src="https://github.com/user-attachments/assets/8bf1dda7-82bd-457a-9d97-df48768d0d5b" />
+
+
 
 ‎ ‎ ‎ $\color{#dea77a}{\text{ ͙͘͡★｡°⋆‎ }}$‎‎ <img width="20" height="20" alt="tumblr_2390a036edc509093e80a3caab5f0bf4_42066991_75" src="https://github.com/user-attachments/assets/e9259e97-35eb-4a92-a48a-558e92833612" />
  ‎ ‎ [<img width="126" height="75" alt="image" src="https://github.com/user-attachments/assets/05fd98a9-674b-428b-802d-a6df3a7b4ab4" />](https://xxzu.atabook.org)  ‎ ‎ ‎ ‎ ‎ ‎
