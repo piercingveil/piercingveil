@@ -39,7 +39,7 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 
 
 
- $\color{#EFA34B}{\text{　˚　　 . ✦　  }}$  <img width="20" height="20" alt="tumblr_045c7e0c1b693a592b3e7739fce0ab1b_3c4eebf4_75" src="https://github.com/user-attachments/assets/61c7a78d-eb01-4480-8fae-4b5e24d5eb76" />  $\color{#D78C54}{\text{　　　 . ★      ⋆.
+ $\color{#EFA34B}{\text{　˚　　 . ✦　  }}$   $\color{#D78C54}{\text{　　　 . ★      ⋆.
 ⏾   　　˚　　   }}$   $\color{#C47A5B}{\text{　　☁︎ 　✦　　　.☁︎✦   }}$   $\color{#A35968}{\text{　 . ★
 　 　*　　☁︎ 　✦　.　  }}$   $\color{#8D4371}{\text{
 　　　✦　　　.　   }}$   $\color{#793079}{\text{　˚　　 . ✦　 ☁︎
@@ -58,16 +58,15 @@ $\color{#9f82ad}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
 
 <details>
   <summary>
-    $\color{#945bb0}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ᓚ₍`..`₎♡  }}$ 
+    $\color{#945bb0}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ꒰১₍`..`₎♡  }}$ 
   </summary>
   <br>
 
-[ponytown's cherie](https://github.com/pt-hall-of-media/pt-hall-of-media) [pt-players!](https://github.com/pt-players) [pt-friendships](https://github.com/pt-friendships)[evil yume](https://github.com/ponytown-yumes)
+[ponytown's cherie](https://github.com/pt-hall-of-media/pt-hall-of-media) [pt-players!](https://github.com/pt-players) [pt-friendships](https://github.com/pt-friendships) [evil yume](https://github.com/ponytown-yumes)
 
-</details>
-<details>
+</details> <details>
   <summary>
-    $\color{#8328b0}{\text{ 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 ૮₍˶ᵔ ᵕ ᵔ˶ ₎ა  }}$ 
+    $\color{#8328b0}{\text{ 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 ૮₍˶ᵔ ᵕ ᵔ˶ ₎໒꒱  }}$ 
   </summary>
   <br>
 @snipebomb on tumblr for below layout!
