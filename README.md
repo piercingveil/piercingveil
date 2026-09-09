@@ -10,7 +10,7 @@
 
 
 $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="20" height="20" alt="tumblr_b8a61173cd311078569850d077661c3e_518cb8ce_75" src="https://github.com/user-attachments/assets/06563521-f69f-4532-80a8-2e0efeb34b8a" />
- $\color{#480178}{\text{ʸᵒ}}$ $\color{#6B237F}{\text{ᵘ'ʳ}}$ $\color{#8D4371}{\text{ᵉ ᵃ}}$ $\color{#9A506C}{\text{ˡˡ}}$ $\color{#AF6563}{\text{ⁱ ⁿ}}$ $\color{#C47A5B}{\text{ᵉ}}$ $\color{#CF8457}{\text{ᵉᵈ  }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#9a2d9c}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#9a2d9c}{\text{♡´･ᴗ･`♡ }}$ 
+ $\color{#480178}{\text{🐈‍⬛ :: ˡᵉ}}$ $\color{#6B237F}{\text{ⁿ'ˢ}}$ $\color{#8D4371}{\text{ᵐ}}$ $\color{#9A506C}{\text{ʸ}}$ $\color{#AF6563}{\text{ᵖᵉ}}$ $\color{#C47A5B}{\text{ᵗ}}$ $\color{#CF8457}{\text{ᶜᵃᵗ }}$ $\color{#E89C4E}{\text{﹗ᛝ    }}$ $\color{#6B2571}{\text{ 　 　˚　　. ݁₊ ⊹ ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#9a2d9c}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#6B2571}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#9a2d9c}{\text{♡´･ᴗ･`♡ }}$ 
 $\color{#dea77a}{\text{ 　˚　　. ݁₊  . ⋆. ࿐࿔::﹒﹒﹒    }}$ 
  
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=9a2d9c&center=true&vCenter=true&width=465&lines=%22Moon,+tell+me+if+I+could...%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
@@ -54,14 +54,12 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ   ‎ ‎ ‎  }}$
 
 <img width="848" height="51" alt="1a1a3e28be7c0cbed0de5f764ff149ef9083fd92" src="https://github.com/user-attachments/assets/bb998757-cdff-49fa-a07f-4434d692ee55" />
 
-$\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$ 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=15&pause=450&color=A13276&width=435&lines=%22My+thoughts+will+follow+you+into+your+dreams.%22;%22These+are+sunflowers.+They+always+face+the+sun.%22;%22That's+how+I+want+to+be+like...%22;%22Someone+who+always+sees+the+bright+side+of+things+-basil%22;%22You'll+forgive+yourself...+won't+you+Sunny%3F%22" alt="Typing SVG" /></a>
-
+$\color{#9f82ad}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife awwwh 1/09/26 ˖ㅤㅤ۫ᘞ ˚ ۪:}}$ 
 
 
 <details>
   <summary>
-    $\color{#742D70}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ᓚ₍`..`₎♡  }}$ 
+    $\color{#945bb0}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ᓚ₍`..`₎♡  }}$ 
   </summary>
   <br>
 
@@ -70,7 +68,7 @@ $\color{#AF6563}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
 </details>
 <details>
   <summary>
-    $\color{#70277D}{\text{ 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 ૮₍˶ᵔ ᵕ ᵔ˶ ₎ა  }}$ 
+    $\color{#8328b0}{\text{ 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 ૮₍˶ᵔ ᵕ ᵔ˶ ₎ა  }}$ 
   </summary>
   <br>
 @snipebomb on tumblr for below layout!
@@ -83,7 +81,10 @@ whoever this is I WILL FIND you and TICKLE you. (with much love ofc)
 
 
 </details>
-<img width="202" height="202" alt="image" src="https://github.com/user-attachments/assets/c0d90db2-6b71-478c-a3ba-83fc801603a2" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e434313-7439-4a36-b7fa-6ccffe443c0c" />
+
+ $\color{#6B237F}{\text{ ⋆.˚໑ ݁༝ ۫ ׅ    }}$ $\color{#945bb0}{\text{ ⋆｡𖦹°⭒˚｡⋆}}$
+ <img width="201" height="201" alt="image" src="https://github.com/user-attachments/assets/c0d90db2-6b71-478c-a3ba-83fc801603a2" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e434313-7439-4a36-b7fa-6ccffe443c0c" />
+$\color{#945bb0}{\text{ ⋆.˚໑ ݁༝ ۫ ׅ }}$ $\color{#945bb0}{\text{ ⋆｡𖦹°⭒˚｡⋆}}$
 
  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=6F4288&width=435&lines=%22Tell+me,+tell+me+you+love+me%22;%22Come+back,+come+back+to+haunt+me%22;%22Won't+you,+won't+you+let+me+be+myself%22" alt="Typing SVG" /></a>
 
