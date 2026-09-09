@@ -58,7 +58,7 @@ $\color{#9f82ad}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
 
 <details>
   <summary>
-    $\color{#945bb0}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ꒰১₍`..`₎♡  }}$ 
+    $\color{#945bb0}{\text{ 𝙖𝙬𝙖𝙧𝙙𝙨 ꒰₍`..`₎♡♯ 𓏼✧˖ᨳଓ }}$ 
   </summary>
   <br>
 
@@ -66,7 +66,7 @@ $\color{#9f82ad}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
 
 </details> <details>
   <summary>
-    $\color{#8328b0}{\text{ 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 ૮₍˶ᵔ ᵕ ᵔ˶ ₎໒꒱  }}$ 
+    $\color{#8328b0}{\text{ 𝘦𝘹𝘵𝘳𝘢 𝘪𝘯𝘧𝘰 ૮₍˶ᵔ ᵕ ᵔ˶ ₎໒꒱⊹₊ ⋆  }}$ 
   </summary>
   <br>
 @snipebomb on tumblr for below layout!
