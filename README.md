@@ -41,7 +41,7 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ  ݁⊹. ݁˖ . ݁‎  }}
 
 
 
- $\color{#EFA34B}{\text{　˚　　 . ✦　  }}$   $\color{#D78C54}{\text{　　　 . ★      ⋆.
+ $\color{#EFA34B}{\text{　˚　　 . ✦　  }}$ [<img width="42" height="20" alt="image" src="https://github.com/user-attachments/assets/89856c16-f04b-4e5a-9d9b-71e3e72c7bfc" />](https://guns.lol/xxxzu)  $\color{#D78C54}{\text{　　　 . ★      ⋆.
 ⏾   　　˚　　   }}$   $\color{#C47A5B}{\text{　　☁︎ 　✦　　　.☁︎✦   }}$   $\color{#A35968}{\text{　 . ★
 　 　*　　☁︎ 　✦　.　  }}$   $\color{#8D4371}{\text{
 　　　✦　　　.　   }}$   $\color{#793079}{\text{　˚　　 . ✦　 ☁︎
