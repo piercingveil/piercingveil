@@ -64,7 +64,7 @@ $\color{#9f82ad}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
   </summary>
   <br>
 
-[ponytown's cherie](https://github.com/pt-hall-of-media/pt-hall-of-media) [pt-players!](https://github.com/pt-players) [pt-friendships](https://github.com/pt-friendships) [evil yume](https://github.com/ponytown-yumes)
+[ponytown's cherie](https://github.com/pt-hall-of-media/pt-hall-of-media) [pt-players!](https://github.com/pt-players) [pt-friendships](https://github.com/pt-friendships) [evil yume](https://github.com/ponytown-yumes) [pt-fashion](https://github.com/pt-fashion)
 
 </details> <details>
   <summary>
