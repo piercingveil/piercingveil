@@ -12,7 +12,7 @@
 $\color{#5a1085}{\text{  .  .   ⋆˚｡˚ }}$ <img width="70" height="45" alt="image" src="https://github.com/user-attachments/assets/8e5b8da7-b5fd-4dc5-90bc-d49e32fe111e" /> $\color{#480178}{\text{:: ˡᵉ}}$ $\color{#6B237F}{\text{ⁿ'ˢ}}$ $\color{#8D4371}{\text{ᵐ}}$ $\color{#9A506C}{\text{ʸ}}$ $\color{#AF6563}{\text{ᵖᵉ}}$ $\color{#C47A5B}{\text{ᵗ}}$ $\color{#bf986f}{\text{ᶜᵃᵗ }}$ $\color{#cfb491}{\text{﹗ᛝ    }}$ $\color{#7b26a3}{\text{ ˚. ݁₊ˢⁱᵍⁿ ᵃᵗᵃ  }}$ $\color{#d1bb9f}{\text{2 ᵇᵉᶜᵒᵐᵉ  }}$ $\color{#7b26a3}{\text{ᵐʸ ᵒᵒᵐᶠⁱᵉ  }}$ $\color{#d1bb9f}{\text{♡ }}$ <img width="50" height="26" alt="image" src="https://github.com/user-attachments/assets/9b60a9e8-8120-494a-8096-17a6423ff28d" />
  $\color{#7b26a3}{\text{˚. ⋆. ࿐࿔﹒}}$ $\color{#d1bb9f}{\text{ 　୭˚. ᵎᵎ  }}$ 
  
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=9a2d9c&center=true&vCenter=true&width=465&lines=%22Moon,+tell+me+if+I+could...%22;%22Send+up+my+heart+to+you%3F%22;%22So+when+I+die+which+I+must+do...%22;%22Could+it+shine+down+here+with+you%3F%22;%22Cause+my+love+is+mine+all+mine%22;%22My+love,+mine+mine+mine%22" alt="Typing SVG" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=602282&center=true&vCenter=true&width=465&lines=%22Their+anatomy...%22;%22Identical+to+mine%3F%22;%22Their+face+is+full+of+joy%22;%22And+mine+is+full+of+agony%22" alt="Typing SVG" /></a>
  
 <img width="640" height="350" alt="image" src="https://github.com/user-attachments/assets/04db66de-591e-4a52-a510-625105c305a0" />
 
