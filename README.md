@@ -51,7 +51,7 @@ $\color{#6F4288}{\text{ᵒᶠ ʸᵒᵘ ᵃⁿᵈ ᵐᵉ  ݁⊹. ݁˖ . ݁‎  }}
 
 <img width="745" height="140" alt="image" src="https://github.com/user-attachments/assets/dd17b3ae-ffaa-4db6-9731-47623f39a70d" />
 
-
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=23&pause=700&color=602282&center=true&vCenter=true&width=465&lines=%22Their+anatomy...%22;%22Identical+to+mine%3F%22;%22Their+face+is+full+of+joy%22;%22And+mine+is+full+of+agony%22" alt="Typing SVG" /></a>
 
 <img width="848" height="51" alt="1a1a3e28be7c0cbed0de5f764ff149ef9083fd92" src="https://github.com/user-attachments/assets/bb998757-cdff-49fa-a07f-4434d692ee55" />
 
@@ -86,7 +86,7 @@ $\color{#763ba3}{\text{ ⋆.}}$ $\color{#9179a3}{\text{ ˚໑ ݁༝ }}$ $\color{
  <img width="201" height="201" alt="image" src="https://github.com/user-attachments/assets/c0d90db2-6b71-478c-a3ba-83fc801603a2" /><img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/5e434313-7439-4a36-b7fa-6ccffe443c0c" />
 $\color{#a389b0}{\text{ ⋆.}}$ $\color{#763ba3}{\text{ ˚໑ ݁༝ }}$ $\color{#a389b0}{\text{ ݁༝ ۫༄: ׅ }}$ $\color{#763ba3}{\text{ ⋆｡𖦹°}}$ $\color{#a389b0}{\text{ ⭒˚｡⋆}}$
 
- <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=6F4288&width=435&lines=%22Tell+me,+tell+me+you+love+me%22;%22Come+back,+come+back+to+haunt+me%22;%22Won't+you,+won't+you+let+me+be+myself%22" alt="Typing SVG" /></a>
+ <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Luxurious+Roman&size=19&pause=600&color=6F4288&width=435&lines=%22wip%22" alt="Typing SVG" /></a>
 
 <img width="2000" height="800" alt="image" src="https://github.com/user-attachments/assets/9d1370ba-74a9-4855-97d5-2f31121f03b1" />
 
