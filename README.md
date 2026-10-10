@@ -73,7 +73,8 @@ $\color{#9f82ad}{\textsf{ ˖ㅤㅤ۫ㅤㅤ ꕮ ㅤ۫ㅤ eekkk my irl malewife aw
   <br>
 @snipebomb on tumblr for below layout!
 other graphics made from pinterest pins!
-
+<img width="227" height="232" alt="image" src="https://github.com/user-attachments/assets/a99cad21-50d0-49ef-ad9a-87f2bab9c2de" />
+plsplspslpslpslpslpslpslpslpslpslpslsplsplsplsplsplsplps be friends with me ok LOVE U ALREADY WHOEVER U ARE
 
 <img width="130" height="83" alt="image" src="https://github.com/user-attachments/assets/8ddfb166-77d7-4619-a77e-640277f619aa" />
 
