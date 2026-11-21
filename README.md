@@ -1,4 +1,4 @@
-<img width="494" height="52" alt="image" src="https://github.com/user-attachments/assets/d678a33b-690b-49b5-9db9-4b11e892d8bc" /><img width="255" height="64" alt="image" src="https://github.com/user-attachments/assets/5dae4b54-08b0-476b-b8b5-60eab2a27766" /> sillyyy:3
+<img width="494" height="52" alt="image" src="https://github.com/user-attachments/assets/d678a33b-690b-49b5-9db9-4b11e892d8bc" />
 
 
 
